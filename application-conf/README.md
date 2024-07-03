@@ -1,1 +1,328 @@
-{@Á——“‰ƒ£‰–•@Ã–•†‰‡¤™£‰–•ãˆ‰¢@†–“„…™@ƒ–•£‰•¢@——“‰ƒ£‰–•@¢—…ƒ‰†‰ƒ@ƒ–•†‰‡¤™£‰–•@—™–—…™£‰…¢@¤¢…„@‚¨@£ˆ…@©Á——Â¤‰“„@Ç™––¥¨@‚¤‰“„@•„@¤£‰“‰£¨@¢ƒ™‰—£¢K@É£@‰¢@‰•£…•„…„@£–@‚…@ƒ–—‰…„@¢@@ˆ‰‡ˆ@“…¥…“@†–“„…™@‰•@£ˆ…@——“‰ƒ£‰–•@™…—–¢‰£–™¨@–™@”‰•@——“‰ƒ£‰–•@™…—–¢‰£–™¨@‰†@£ˆ…@——“‰ƒ£‰–•@¢–¤™ƒ…@†‰“…¢@™…@„‰¢£™‰‚¤£…„@ƒ™–¢¢@”¤“£‰—“…@™…—–¢‰£–™‰…¢K@Ö•ƒ…@ƒ–—‰…„@£–@£ˆ…@——“‰ƒ£‰–•@™…—–¢‰£–™¨k@¤¢…™¢@¢ˆ–¤“„@™…¥‰…¦@£ˆ…@„…†¤“£@—™–—…™£¨@†‰“…¢@•„@”–„‰†¨@•¨@¥“¤…¢@¢@•……„…„KÁ£@£ˆ…@‚…‡‰••‰•‡@–†@£ˆ…@‚¤‰“„k@£ˆ…@y——“‰ƒ£‰–•K—™–—…™£‰…¢y@†‰“…@¦‰““@¤£–”£‰ƒ““¨@‚…@¢…™ƒˆ…„@•„@“–„…„@‰†@‰£@…§‰¢£¢@‰•£–@£ˆ…@­ÄÂÂ@Â¤‰“„×™–—…™£‰…¢@ƒ“¢¢½Mˆ££—¢zaa¦¦¦K‰‚”Kƒ–”a„–ƒ¢a…•a„‚‚aòKğo£–—‰ƒ~—‰¢`‚¤‰“„`—™–—…™£‰…¢{‚¤‰“„`—™–—…™£‰…¢`ƒ“¢¢]K@ãˆ…@y——“‰ƒ£‰–•K—™–—…™£‰…¢y@†‰“…@‰¢@‚¨@„…†¤“£@¢…™ƒˆ…„@‰•@£ˆ…@y——“‰ƒ£‰–•`ƒ–•†y@†–“„…™@–†@£ˆ…@——“‰ƒ£‰–•k@‚¤£@£ˆ‰¢@ƒ•@‚…@ƒ–•†‰‡¤™…„@£ˆ™–¤‡ˆ@£ˆ…@y——“‰ƒ£‰–•Ã–•†Ä‰™y@—™–—…™£¨@‰•@­‚¤‰“„`ƒ–•†a‚¤‰“„K—™–—…™£‰…¢½MKKaKKa‚¤‰“„`ƒ–•†a‚¤‰“„K—™–—…™£‰…¢]K@ä¢…@£ˆ…@y——“‰ƒ£‰–•×™–—Æ‰“…¢y@—™–—…™£¨@M¢……@£‚“…@‚…“–¦]@£–@“–„@„„‰£‰–•“@——“‰ƒ£‰–•@—™–—…™£¨@†‰“…¢K×™–—…™£‰…¢@ƒ•@‚…@–¥…™¦™‰££…•@–•@@—…™@†‰“…@‚¢‰¢@£ˆ™–¤‡ˆ@ÄÂÂ@Â¤‰“„@×™–—…™£‰…¢@†‰“…@—™–—…™£‰…¢K@ãˆ…@£‚“…¢@‚…“–¦@‰•„‰ƒ£…@¦ˆ‰ƒˆ@—™–—…™£‰…¢@’…¨¢@ƒ•@‚…@–¥…™¦™‰££…•K@É£@‰¢@™…ƒ–””…•„…„@£–@”•‡…@£ˆ…¢…@–¥…™¦™‰£…¢@‰•@y†‰“…K—™–—…™£‰…¢yK{{@×™–—…™£¨@Æ‰“…@Ä…¢ƒ™‰—£‰–•¢â‰•ƒ…@““@—™–—…™£‰…¢@¦‰““@‚…@“–„…„@‰•£–@@¢‰•‡“…@¢££‰ƒ@‰•¢£•ƒ…@–†@Â¤‰“„×™–—…™£‰…¢k@£ˆ…@–™‡•‰©£‰–•@•„@•”‰•‡@ƒ–•¥…•£‰–•@–†@£ˆ…@\—™–—…™£¨@†‰“…¢\@™…@¢–”…¦ˆ£@™‚‰£™™¨@•„@£™‡…£…„@”–™…@†–™@¢…“†@„–ƒ¤”…•££‰–•@•„@¤•„…™¢£•„‰•‡K@×™–—…™£‰…¢@™…“£…„@£–@@“•‡¤‡…@¢ƒ™‰—£@™…@—™…†‰§…„@¦‰£ˆ@£ˆ…@•”…@–†@£ˆ…@“•‡¤‡…@¢ƒ™‰—£@M‰K…@yƒ–‚–“mƒ–”—‰“…×™”¢y]K{{{@——“‰ƒ£‰–•K—™–—…™£‰…¢ãˆ‰¢@—™–—…™£¨@†‰“…@‰¢@“–„…„@¤£–”£‰ƒ““¨@£@£ˆ…@‚…‡‰••‰•‡@–†@£ˆ…@‚¤‰“„@•„@ƒ–•£‰•¢@——“‰ƒ£‰–•@¢—…ƒ‰†‰ƒ@—™–—…™£‰…¢@¤¢…„@”‰•“¨@‚¨@y‚¤‰“„K‡™––¥¨y@‚¤£@ƒ•@“¢–@‚…@@—“ƒ…@£–@„…ƒ“™…@—™–—…™£‰…¢@¤¢…„@‚¨@”¤“£‰—“…@“•‡¤‡…@¢ƒ™‰—£¢K@Á„„‰£‰–•“@—™–—…™£¨@†‰“…¢@™…@“–„…„@‚¢…„@–•@£ˆ…@ƒ–•£…•£@–†@£ˆ…@y——“‰ƒ£‰–•×™–—Æ‰“…¢y@—™–—…™£¨K×™–—…™£¨@O@Ä…¢ƒ™‰—£‰–•@O@Ö¥…™™‰„‚“…```@O@```@O@```™¤•©ã…¢£¢@O@Â––“…•@¥“¤…@£–@¢—…ƒ‰†¨@‰†@©ä•‰£@£…¢£¢@¢ˆ–¤“„@‚…@™¤•K@@Ä…†¤“£¢@£–@y†“¢…yk@£–@…•‚“…@©ä•‰£@ã…¢£¢k@¢…£@¥“¤…@£–@y£™¤…yK@O@†“¢…——“‰ƒ£‰–•×™–—Æ‰“…¢@O@Ã–””@¢…—™£…„@“‰¢£@–†@„„‰£‰–•“@——“‰ƒ£‰–•@—™–—…™£¨@†‰“…¢@£–@“–„K@â¤——–™£¢@‚–£ˆ@‚¢–“¤£…@•„@™…“£‰¥…@†‰“…@—£ˆ¢K@@Ù…“£‰¥…@—£ˆ¢@¢¢¤”…„@£–@‚…@™…“£‰¥…@£–@[À¦–™’¢—ƒ…Ğa[À——“‰ƒ£‰–•Ğa——“‰ƒ£‰–•`ƒ–•†aK@O@†“¢…——“‰ƒ£‰–•â™ƒÄ‰™¢@O@Ã–””@¢…—™£…„@“‰¢£@–†@““@¢–¤™ƒ…@„‰™…ƒ£–™‰…¢@‰•ƒ“¤„…„@‰•@——“‰ƒ£‰–•@‚¤‰“„K@Åƒˆ@„‰™…ƒ£–™¨@‰¢@¢¢¤”…„@£–@‚…@@“–ƒ“@Ç‰£@™…—–¢‰£–™¨@ƒ“–•…K@â¤——–™£¢@‚–£ˆ@‚¢–“¤£…@•„@™…“£‰¥…@—£ˆ¢@£ˆ–¤‡ˆ@†–™@”§‰”¤”@™…¤¢…@–†@ƒ–““…ƒ£…„@„…—…•„…•ƒ¨@„£@™…“£‰¥…@—£ˆ¢@¢ˆ–¤“„@‚…@¤¢…„K@@Ù…“£‰¥…@—£ˆ¢@¢¢¤”…„@£–@‚…@™…“£‰¥…@£–@[À¦–™’¢—ƒ…ĞK@O@†“¢…‚¤‰“„Ö™„…™@O@Ã–””@¢…—™£…„@“‰¢£@–†@£ˆ…@‚¤‰“„@¢ƒ™‰—£@—™–ƒ…¢¢‰•‡@–™„…™K@O@†“¢…†–™”£Ã–•¢–“…Ö¤£—¤£@OAÆ“‡@£–@“–‡@–¤£—¤£@‰•@£‚“…@¥‰…¦¢@‰•¢£…„@–†@—™‰•£‰•‡@™¦@ÑâÖÕ@„£@O@†“¢…”‰•Â¤‰“„Â™•ƒˆ@O@ãˆ…@”‰•@‚¤‰“„@‚™•ƒˆ@–†@£ˆ…@”‰•@——“‰ƒ£‰–•@™…—–¢‰£–™¨K@@ä¢…„@†–™@ƒ“–•‰•‡@ƒ–““…ƒ£‰–•¢@†–™@£–—‰ƒ@‚™•ƒˆ@‚¤‰“„¢@‰•¢£…„@–†@™…¢ƒ••‰•‡@£ˆ…@…•£‰™…@——“‰ƒ£‰–•K@O@†“¢…‡‰£Ù…—–¢‰£–™¨äÙÓ@OA‡‰£@™…—–¢‰£–™¨@äÙÓ@–†@£ˆ…@——“‰ƒ£‰–•@™…—–¢‰£–™¨@£–@…¢£‚“‰¢ˆ@“‰•’¢@£–@£ˆ…@ƒˆ•‡…„@†‰“…¢@‰•@£ˆ…@‚¤‰“„@™…¢¤“£@—™–—…™£‰…¢@O@†“¢……§ƒ“¤„…Æ‰“…Ó‰¢£@O@Æ‰“…¢@£–@…§ƒ“¤„…@¦ˆ…•@¢ƒ••‰•‡@–™@™¤••‰•‡@†¤““@‚¤‰“„K@O@†“¢…¢’‰—É”—ƒ£Ã“ƒ¤“£‰–•Ó‰¢£@O@Æ‰“…¢@†–™@¦ˆ‰ƒˆ@£ˆ…@‰”—ƒ£@•“¨¢‰¢@¢ˆ–¤“„@‚…@¢’‰——…„@‰•@‰”—ƒ£@‚¤‰“„@O@†“¢…‘–‚Ã™„@O@ÑÖÂÃÁÙÄ@†–™@ÑÃÓ@…§…ƒ¢@O@†“¢…\\Â¤‰“„@×™–—…™£¨@”•‡…”…•£\\@O@O@“–„Æ‰“…Ó…¥…“×™–—…™£‰…¢@O@Æ“‡@£–@…•‚“…@£ˆ…@©Á——Â¤‰“„@ƒ—‚‰“‰£¨@£–@“–„@‰•„‰¥‰„¤“@™£‰†ƒ£@—™–—…™£‰…¢@†‰“…¢@†–™@@‚¤‰“„@†‰“…@O@£™¤…“–„Ó•‡¤‡…Ã–•†‰‡¤™£‰–•×™–—…™£‰…¢@O@Æ“‡@£–@…•‚“…@£ˆ…@©Á——Â¤‰“„@ƒ—‚‰“‰£¨@£–@“–„@“•‡¤‡…@ƒ–•†‰‡¤™£‰–•@—™–—…™£‰…¢@†–™@‚¤‰“„@†‰“…¢@”——…„@‰•@“•‡¤‡…Ã–•†‰‡¤™£‰–•Ô——‰•‡K—™–—…™£‰…¢@O@£™¤…—™–—…™£¨Æ‰“…×£ˆ@O@™…“£‰¥…@—£ˆ@£–@†–“„…™@ƒ–•£‰•‰•‡@‰•„‰¥‰„¤“@™£‰†ƒ£@—™–—…™£‰…¢@†‰“…¢@O@£™¤…—™–—…™£¨Æ‰“…Å§£…•¢‰–•@O@†‰“…@…§£…•¢‰–•@†–™@‰•„‰¥‰„¤“@™£‰†ƒ£@—™–—…™£‰…¢@†‰“…¢@O@£™¤…\\Ä…—…•„…•ƒ¨@•„@É”—ƒ£@™…¢–“¤£‰–•@ƒ–•†‰‡¤™£‰–•\\@OO™…¢–“¥…â¤‚¢¨¢£…”¢@O@‚––“…•@†“‡@£–@ƒ–•†‰‡¤™…@£ˆ…@â…™ƒˆ×£ˆÄ…—…•„…•ƒ¨Ù…¢–“¥…™@£–@…¥“¤£…@‰†@™…¢–“¥…„@„…—…•„…•ƒ‰…¢@‰”—ƒ£@£ˆ…@†‰“…@†“‡¢@‰¢ÃÉÃâk@‰¢âØÓk@‰¢ÄÓÉk@‰¢ÔØ@¦ˆ…•@ƒ™…£‰•‡@£ˆ…@Ó–‡‰ƒ“Æ‰“…@O@†“¢…‰”—ƒ£Ù…¢–“¤£‰–•Ù¤“…¢@O@Ã–””@¢…—™£…„@“‰¢£@–†@™…¢–“¤£‰–•@™¤“…@—™–—…™£‰…¢@¤¢…„@†–™@‰”—ƒ£@‚¤‰“„¢K@@â”—“…@™…¢–“¤£‰–•@™¤“…@—™–—…™£‰…¢@M‰•@ÑâÖÕ@†–™”£]@™…@‰•ƒ“¤„…„@‚…“–¦K@\\@„…—™…ƒ£…„@\\@×“…¢…@ƒ–•¢‰„…™@”–¥‰•‡@£–@•…¦@â…™ƒˆ×£ˆÄ…—…„…•ƒ¨Á×É@“…¥…™‡‰•‡@y‰”—ƒ£â…™ƒˆy@ƒ–•†‰‡¤™£‰–•K@O@£™¤…k@™…ƒ–””…•„…„@‰•@†‰“…K—™–—…™£‰…¢‰”—ƒ£â…™ƒˆ@OAÉ”—ƒ£@†‰•„…™@™…¢–“¤£‰–•@¢…™ƒˆ@ƒ–•†‰‡¤™£‰–•@“…¥…™‡‰•‡@£ˆ…@â…™ƒˆ×£ˆÉ”—ƒ£Æ‰•„…™@Á×ÉK@â”—“…@ƒ–•†‰‡¤™£‰–•¢@™…@‰•“ƒ¤„…„@‚…“–¦k@•…§£@£–@£ˆ…@—™…¥‰–¤¢@™¤“…@„…†‰•‰£‰–•¢K@O@£™¤…{{{@†‰“…K—™–—…™£‰…¢Ó–ƒ£‰–•@–†@†‰“…@—™–—…™£‰…¢k@¢ƒ™‰—£@”——‰•‡¢@•„@†‰“…`“…¥…“@—™–—…™£¨@–¥…™™‰„…¢K@Á““@†‰“…@—™–—…™£‰…¢@†–™@£ˆ…@…•£‰™…@——“‰ƒ£‰–•k@‰•ƒ“¤„‰•‡@¢–¤™ƒ…@†‰“…¢@‰•@„‰¢£™‰‚¤£…„@™…—–¢‰£–™‰…¢@–†@£ˆ…@——“‰ƒ£‰–•@•……„@£–@‚…@ƒ–•£‰•…„@…‰£ˆ…™@‰•@£ˆ‰¢@†‰“…@–™@‰•@–£ˆ…™@—™–—…™£¨@†‰“…¢@‰•@£ˆ…@y——“‰ƒ£‰–•`ƒ–•†y@„‰™…ƒ£–™¨K@Ó––’@†–™@£ˆ…@ƒ–“¤”•@}Ö¥…™™‰„‚“…}@‰•@£ˆ…@£‚“…¢@‚…“–¦@†–™@‚¤‰“„@—™–—…™£‰…¢@£ˆ£@ƒ•@ˆ¥…@†‰“…`“…¥…“@—™–—…™£¨@–¥…™™‰„…¢K@×“…¢…@“¢–@™…„@£ˆ…@¢…ƒ£‰–•@­Â¤‰“„@—™–—…™£‰…¢½Mˆ££—¢zaa¦¦¦K‰‚”Kƒ–”a„–ƒ¢a…•a„‚‚aòKğo£–—‰ƒ~—‰¢`‚¤‰“„`—™–—…™£‰…¢]@‰•@£ˆ…@–††‰ƒ‰“@ÄÂÂ@„–ƒ¤”…•££‰–•KÁ„„‰£‰–•“@†‰“…`“…¥…“@—™–—…™£‰…¢@ƒ•@‚…@„…†‰•…„@£ˆ™–¤‡ˆ@\\‰•„‰¥‰„¤“@™£‰†ƒ£@—™–—…™£‰…¢@†‰“…¢\\@‰•@@¢…—™£…@„‰™…ƒ£–™¨@–†@£ˆ…@™…—–¢‰£–™¨@–™@£ˆ™–¤‡ˆ@\\“•‡¤‡…@ƒ–•†‰‡¤™£‰–•\\@†‰“…¢@£–@ƒ–•†‰‡¤™…@£ˆ…@“•‡¤‡…@¢ƒ™‰—£¢K@Æ–™@”–™…@„…£‰“¢k@¢……@­Æ‰“…@×™–—…™£¨@Ô•‡…”…•£½Mˆ££—¢zaa‡‰£ˆ¤‚Kƒ–”aÉÂÔa„‚‚`©——‚¤‰“„a„–ƒ¢aÆ‰“…×™–—…™£¨Ô•‡…”…•£K”„]K×™–—…™£¨@O@Ä…¢ƒ™‰—£‰–•```@O@```„‚‚K¢ƒ™‰—£Ô——‰•‡@O@ÄÂÂ@ƒ–•†‰‡¤™£‰–•@†‰“…@—™–—…™£‰…¢@¢¢–ƒ‰£‰–•@‚¤‰“„@†‰“…¢@£–@“•‡¤‡…@¢ƒ™‰—£¢„‚‚K¢ƒ••…™Ô——‰•‡@O@©Á——Â¤‰“„@ƒ–•†‰‡¤™£‰–•@–¥…™™‰„…a…§—•¢‰–•@£–@”—@†‰“…¢@…§£…•¢‰–•¢@£–@ÄÂÂ@„…—…•„…•ƒ¨@¢ƒ••…™@ƒ–•†‰‡¤™£‰–•¢ƒ–‚–“m£…¢£ƒ¢…@O@Æ‰“…@—™–—…™£¨@£–@‰•„‰ƒ£…@@‡…•…™£…„@©ä•‰£@ƒ–‚–“@£…¢£@ƒ¢…@£–@¤¢…@@„‰††…™…•£@¢…£@–†@¢–¤™ƒ…@•„@–¤£—¤£@“‰‚™™‰…¢×™–—…™£¨@O@Ä…¢ƒ™‰—£‰–•```@O@```“–„Æ‰“…Ó…¥…“×™–—…™£‰…¢@O@Æ“‡@£–@…•‚“…@£ˆ…@©Á——Â¤‰“„@ƒ—‚‰“‰£¨@£–@“–„@‰•„‰¥‰„¤“@™£‰†ƒ£@—™–—…™£‰…¢@†‰“…¢@†–™@¢–¤™ƒ…@†‰“…¢K@â……@„…†¤“£@ƒ–•†‰‡¤™£‰–•@‰•@­——“‰ƒ£‰–•K—™–—…™£‰…¢½M{——“‰ƒ£‰–•K—™–—…™£‰…¢]“–„Ó•‡¤‡…Ã–•†‰‡¤™£‰–•×™–—…™£‰…¢@O@Æ“‡@£–@…•‚“…@£ˆ…@©Á——Â¤‰“„@ƒ—‚‰“‰£¨@£–@“–„@“•‡¤‡…@ƒ–•†‰‡¤™£‰–•@—™–—…™£‰…¢@†‰“…¢@†–™@¢–¤™ƒ…@†‰“…¢K@â……@„…†¤“£@ƒ–•†‰‡¤™£‰–•@‰•@­——“‰ƒ£‰–•K—™–—…™£‰…¢½M{——“‰ƒ£‰–•K—™–—…™£‰…¢]“•‡¤‡…Ã–•†‰‡¤™£‰–•@O@×™–—…™£‰…¢@”——‰•‡@†–™@¢¢‰‡•‰•‡@‚¤‰“„@†‰“…¢@£–@“•‡¤‡…@ƒ–•†‰‡¤™£‰–•@£–@„…†‰•…@£ˆ…@‚¤‰“„@ƒ–•†‰‡¤™£‰–•Ç…•…™“@†‰“…@“…¥…“@–¥…™¦™‰£…¢@£–@ƒ–•£™–“@£ˆ…@““–ƒ£‰–•¢@–†@¢¨¢£…”@„£¢…£¢@†–™@ƒ–”—‰“…@•„@“‰•’@¢£…—¢@–™@ƒ£‰¥£‰–•@–†@—™…—™–ƒ…¢¢‰•‡×™–—…™£¨@O@Ä…¢ƒ™‰—£‰–•```@O@```‰¢âØÓ@O@Æ‰“…@—™–—…™£¨@–¥…™¦™‰£…@£–@‰•„‰ƒ£…@£ˆ£@@†‰“…@™…˜¤‰™…¢@£–@‰•ƒ“¤„…@âØÓ@—™…—™–ƒ…¢¢‰•‡k@•„@““–ƒ£‰–•@–†@Ä‚ò@“‰‚™™‰…¢@†–™@ƒ–”—‰“…@•„@“‰•’@—ˆ¢…K‰¢ÃÉÃâ@O@Æ‰“…@—™–—…™£¨@–¥…™¦™‰£…@£–@‰•„‰ƒ£…@£ˆ£@@†‰“…@™…˜¤‰™…¢@£–@‰•ƒ“¤„…@ÃÉÃâ@—™…—™–ƒ…¢¢‰•‡k@•„@““–ƒ£‰–•@–†@ÃÉÃâ@“‰‚™™‰…¢@†–™@ƒ–”—‰“…@•„@“‰•’@—ˆ¢…K@Á“¢–@¤¢…„@£–@‰•„‰ƒ£…@‰†@@\‚£ƒˆ\@”–„¤“…@‰¢@…§…ƒ¤£…„@¤•„…™@ÃÉÃâ@†–™@—¤““‰•‡@——™–—™‰£…@“•‡¤‡…@‰•£…™†ƒ…@”–„¤“…¢@†–™@Ä‚ò@–™@ÔØK@‰¢ÔØ@O@Æ‰“…@—™–—…™£¨@–¥…™¦™‰£…@£–@‰•„‰ƒ£…@£ˆ£@@†‰“…@™…˜¤‰™…¢@£–@‰•ƒ“¤„…@ÔØ@“‰‚™™‰…¢@†–™@ƒ–”—‰“…@•„@“‰•’@—ˆ¢…K‰¢ÄÓÉ@O@Æ‰“…@—™–—…™£¨@–¥…™¦™‰£…@£–@‰•„‰ƒ£…@£ˆ£@@†‰“…@™…˜¤‰™…¢@£–@‰•ƒ“¤„…@ÄÓÉ@‰¢ÉÔâ@OAÆ‰“…@—™–—…™£¨@†“‡@£–@‰•„‰ƒ£…@ÉÔâ@‚£ƒˆ@•„@–•“‰•…@—™–‡™”¢@£–@““–ƒ£…@£ˆ…@ÉÔâ@ÙÅâÓÉÂ@“‰‚™™¨@„¤™‰•‡@“‰•’@—ˆ¢…@MÃ–”—™…„@£–@£ˆ…@–£ˆ…™@ô@‚–¥…@†“‡¢k@£ˆ…@‰¢ÉÔâ@†“‡@‰¢@@—¤™…@†‰“…@—™–—…™£¨k@•„@•–£@ƒ–”—¤£…„@‚¨@£ˆ…@ÄÂÂ@¢ƒ••…™¢]K@×“…¢…@•–£…@£ˆ£@£ˆ…@‚–¥…@†‰“…@—™–—…™£¨@¢…££‰•‡¢@y‰¢ÃÉÃây@•„@y‰¢ÉÔây@™…@“¢–@¤¢…„@£–@ƒ–•£™–“@£ˆ…@““–ƒ£‰–•¢@¦ˆ…•@—™–ƒ…¢¢‰•‡@“‰•’@ƒ™„¢@¦‰£ˆ@yÓ‰•’Å„‰£K‡™––¥¨y@£–@‰•ƒ“¤„…@£ˆ…@——™–—™‰£…@™¤•£‰”…@¢—…ƒ‰†‰ƒ@“•‡¤‡…@‰•£…™†ƒ…¢K{{{@™…—–™£¢K—™–—…™£‰…¢×™–—…™£‰…¢@¤¢…„@‚¨@£ˆ…@‚¤‰“„@†™”…¦–™’@£–@‡…•…™£…@™…—–™£¢K@â”—“…@—™–—…™£‰…¢@†‰“…@£–@““@——“‰ƒ£‰–•`ƒ–•†@£–@–¥…™¦™‰£…@ƒ…•£™“@‚¤‰“„`ƒ–•†@ƒ–•†‰‡¤™£‰–•K×™–—…™£¨@O@Ä…¢ƒ™‰—£‰–•@```@O@```™…—–™£Å§£…™•“É”—ƒ£¢@O@Æ“‡@£–@‰•„‰ƒ£…@‰†@•@\‰”—ƒ£Â¤‰“„\@¢ˆ–¤“„@•“¨©…@•„@™…—–™£@…§£…™•“@‰”—ƒ£…„@†‰“…¢@‰•@–£ˆ…™@ƒ–““…ƒ£‰–•¢™…—–™£Å§£…™•“É”—ƒ£¢Á•“¨¢‰¢Ä…—£ˆ¢@O@Ã–•†‰‡¤™£‰–•@–†@£ˆ…@•“¨¢‰¢@„…—£ˆ¢@¦ˆ…•@—…™†–™”‰•‡@‰”—ƒ£@•“¨¢‰¢@†–™@…§£…™•“@‰”—ƒ£¢@M¢‰”—“…O„……—]™…—–™£Å§£…™•“É”—ƒ£¢Á•“¨¢‰¢Æ‰“…Æ‰“£…™@O@Ã–””`¢…—™£…„@“‰¢£@–†@—£ˆÔ£ƒˆ…™@†‰“£…™¢@£–@“‰”‰£@£ˆ…@•“¨¢‰¢@–†@…§£…™•“@‰”—ƒ£¢@£–@@¢¤‚¢…£@–†@£ˆ…@ƒˆ•‡…„@†‰“…¢™…—–™£Å§£…™•“É”—ƒ£¢Ã–““…ƒ£‰–•×££…™•¢@O@Ã–””`¢…—™£…„@“‰¢£@–†@™…‡…§@—££…™•¢@–†@ÄÂÂ@ƒ–““…ƒ£‰–•@•”…¢@†–™@¦ˆ‰ƒˆ@…§£…™•“@‰”—ƒ£¢@¢ˆ–¤“„@‚…@„–ƒ¤”…•£…„™…—–™£Ã–•ƒ¤™™…•£Ãˆ•‡…¢@O@Æ“‡@£–@‰•„‰ƒ£…@‰†@£ˆ…@‚¤‰“„@‡…•…™£…¢@™…—–™£¢@–†@ƒ–•ƒ¤™™…•£@ƒˆ•‡…¢@£–@¤•„…™¢£•„@™…ƒ…•£@ƒˆ•‡…¢@‰•@ƒ–•ƒ¤™™…•£@ƒ–•†‰‡¤™£‰–•¢@M‚™•ƒˆ…¢]™…—–™£Ã–•ƒ¤™™…•£Ãˆ•‡…¢Ç‰£Â™•ƒˆÙ…†…™…•ƒ…×££…™•¢@O@Ã–””`¢…—…™£…„@“‰¢£@–†@™…‡…§@—££…™•¢@„…†‰•‰•‡@£ˆ…@‚™•ƒˆ…¢@†–™@¦ˆ‰ƒˆ@ƒ–•ƒ¤™™…•£@ƒˆ•‡…¢@¢ˆ–¤“„@‚…@ƒ“ƒ¤“£…„™…—–™£Ã–•ƒ¤™™…•£Ãˆ•‡…¢É•£…™¢…ƒ£‰–•Æ‰“¢Â¤‰“„@O@Æ“‡@£–@‰•„‰ƒ£…„@‰†@£ˆ…@‚¤‰“„@‰¢@”™’…„@¢@…™™–™k@¦ˆ…•@‚¤‰“„@“‰¢£@‰•£…™¢…ƒ£¢@¦‰£ˆ@ƒˆ•‡…¢@–•@ƒ–•ƒ¤™™…•£@ƒ–•†‰‡¤™£‰–•¢{{{@Á¢¢…”‚“…™K—™–—…™£‰…¢Á——“‰ƒ£‰–•@—™–—…™£‰…¢@¤¢…„@‚¨@©Á——Â¤‰“„a“•‡¤‡…aÁ¢¢…”‚“…™K‡™––¥¨×™–—…™£¨@O@Ä…¢ƒ™‰—£‰–•@O@Ö¥…™™‰„‚“…```@O@```@O@```¢¢…”‚“…™m†‰“…Â¤‰“„Ù•’@O@Ä…†¤“£@Á¢¢…”‚“…@—™–‡™”@‚¤‰“„@™•’K@ä¢…„@£–@¢–™£@Á¢¢…”‚“…™@‚¤‰“„@†‰“…@¢¤‚`“‰¢£K@Ó…¥…@…”—£¨K@O@£™¤…¢¢…”‚“…™m—‡”×™”¢@O@Ä…†¤“£@Á¢¢…”‚“…™@—™”…£…™¢K@O@£™¤…¢¢…”‚“…™m“‰•’Å„‰£×™”¢@O@Ä…†¤“£@—™”…£…™¢@†–™@£ˆ…@“‰•’@…„‰£@¢£…—K@O@£™¤…¢¢…”‚“…™m„…‚¤‡×™”¢@O@Á¢¢…”‚“…™@–—£‰–•¢@¦ˆ…•@£ˆ…@„…‚¤‡@†“‡@‰¢@¢…£K@O@£™¤…¢¢…”‚“…™mƒ–”—‰“…Å™™–™×™…†‰§×™”¢@O@Ä…†¤“£@—™”…£…™¢@£–@¢¤——–™£@™…”–£…@…™™–™@†……„‚ƒ’@‰•@¤¢…™@‚¤‰“„@¢ƒ…•™‰–¢@OA£™¤…¢¢…”‚“…™m…˜“•‡§×™”¢@O@Ä…†¤“£@—™”…£…™¢@†–™@…˜“•‡§@¤£‰“‰£¨@£–@—™–„¤ƒ…@„…‚¤‡@¢‰„…†‰“…K@O@£™¤…¢¢…”‚“…™m„‚ò—™…ƒ–”—‰“…™×™”¢@O@Ä…†¤“£@Á¢¢…”‚“…™@—™”…£…™¢@†–™@Ä‚ò@—™…ƒ–”—‰“…™@¢£…—K@O@£™¤…¢¢…”‚“…™mƒ‰ƒ¢—™…ƒ–”—‰“…™×™”¢@OAÄ…†¤“£@Á¢¢…”‚“…™@—™”…£…™¢@†–™@ÃÉÃâ@—™…ƒ–”—‰“…™@¢£…—K@O@£™¤…¢¢…”‚“…™m¢”Ö—£Æ‰“…@OAÖ—£‰–•“@ÁâÔÁÖ×ã@†‰“…@`@„£¢…£M”…”‚…™]K@O@£™¤…¢¢…”‚“…™m“‰•’Å„‰£@O@Æ“‡@‰•„‰ƒ£‰•‡@£–@…§…ƒ¤£…@£ˆ…@“‰•’@…„‰£@¢£…—@£–@—™–„¤ƒ…@@“–„@”–„¤“…@†–™@£ˆ…@¢–¤™ƒ…@†‰“…K@@É†@†“¢…@£ˆ…•@@–‚‘…ƒ£@„…ƒ’@¦‰““@‚…@ƒ™…£…„@‰•¢£…„@†–™@“£…™@“‰•’‰•‡K@O@£™¤…¢¢…”‚“…™m“‰•’Å„‰£â£™…”@O@Ö—£‰–•“@“‰•’Å„‰£â£™…”@„…†‰•‰•‡@„„‰£‰–•“@“‰•’@‰•¢£™¤ƒ£‰–•¢@¥‰@âèâÉÕ@„„@OA£™¤…¢¢…”‚“…™m”§âØÓã™•¢“£–™ÙÃ@O@Ä…†¤“£@”§‰”¤”@™…£¤™•@ƒ–„…@†–™@£ˆ…@¢˜“@£™•¢“£–™@¢£…—K@O@£™¤…¢¢…”‚“…™m”§ÃÉÃâã™•¢“£–™ÙÃ@O@Ä…†¤“£@”§‰”¤”@™…£¤™•@ƒ–„…@†–™@£ˆ…@ƒ‰ƒ¢@£™•¢“£–™@¢£…—K@O@£™¤…¢¢…”‚“…™m”§ÙÃ@O@Ä…†¤“£@”§‰”¤”@™…£¤™•@ƒ–„…@†–™@£ˆ…@Á¢¢…”‚“…™@¢£…—K@O@£™¤…¢¢…”‚“…™m”§ÉÄÉÓÁÕÇçmÙÃ@O@Ä…†¤“£@”§‰”¤”@™…£¤™•@ƒ–„…@†–™@£ˆ…@„…‚¤‡@ÉÄÉÓÁÕÇç@¢‰„…†‰“…@‡…•…™£‰–•@¢£…—K@O@£™¤…¢¢…”‚“…™m“‰•’Å„‰£Ô§ÙÃ@O@Ä…†¤“£@”§‰”¤”@™…£¤™•@ƒ–„…@†–™@£ˆ…@“‰•’Å„‰£@¢£…—K@O@£™¤…¢¢…”‚“…™m‰”—ƒ£×™–—…™£¨Ó‰¢£@O@Ó‰¢£@–†@‚¤‰“„@—™–—…™£‰…¢@ƒ¤¢‰•‡@—™–‡™”¢@£–@™…‚¤‰“„@¦ˆ…•@ƒˆ•‡…„@O@†“¢…¢¢…”‚“…™m‰”—ƒ£×™–—…™£¨Ó‰¢£ÃÉÃâ@O@Ó‰¢£@–†@ÃÉÃâ@‚¤‰“„@—™–—…™£‰…¢@ƒ¤¢‰•‡@—™–‡™”¢@£–@™…‚¤‰“„@¦ˆ…•@ƒˆ•‡…„@O@†“¢…¢¢…”‚“…™m‰”—ƒ£×™–—…™£¨Ó‰¢£âØÓ@O@Ó‰¢£@–†@âØÓ@‚¤‰“„@—™–—…™£‰…¢@ƒ¤¢‰•‡@—™–‡™”¢@£–@™…‚¤‰“„@¦ˆ…•@ƒˆ•‡…„@O@†“¢…¢¢…”‚“…™m„…—…•„…•ƒ¨â…™ƒˆ@O@Á¢¢…”‚“…™@„…—…•„…•ƒ¨â…™ƒˆ@ƒ–•†‰‡¤™£‰–•@£–@ƒ–•†‰‡¤™…@£ˆ…@â…™ƒˆ×£ˆÄ…—…•„…•ƒ¨Ù…¢–“¥…™K@Æ–™”£@‰¢@@ƒ–•ƒ£…•£…„@¢£™‰•‡@–†@¢…™ƒˆ×£ˆ@ƒ–•†‰‡¤™£‰–•¢K@â£™‰•‡¢@™…—™…¢…•£‰•‡@£ˆ…@â…™ƒˆ×£ˆ¢@„…†‰•…„@‰•@y——“‰ƒ£‰–•`ƒ–•†a——“‰ƒ£‰–•K—™–—…™£‰…¢yK@O@£™¤…¢¢…”‚“…™m¢£–™…ââÉ@O@Æ“‡@£–@¢£–™…@‚‚™…¥@‡‰£@ˆ¢ˆ@‰•@¢¢‰@†‰…“„@‰•@“‰•’@¢£…—@O@£™¤…¢¢…”‚“…™m„…—“–¨ã¨—…@O@„…†¤“£@„…—“–¨ã¨—…@†–™@‚¤‰“„@–¤£—¤£@O@£™¤…¢¢…”‚“…™m„…—“–¨ã¨—…ÃÉÃâ@O@„…—“–¨ã¨—…@†–™@‚¤‰“„@–¤£—¤£@†–™@‚¤‰“„@†‰“…¢@¦ˆ…™…@‰¢ÃÉÃâ~£™¤…@O@£™¤…¢¢…”‚“…™m„…—“–¨ã¨—…ÄÓÉ@O@„…—“–¨ã¨—…@†–™@‚¤‰“„@–¤£—¤£@†–™@‚¤‰“„@†‰“…¢@¦‰£ˆ@‰¢ÄÓÉ~£™¤…@O@£™¤…¢¢…”‚“…™m¢ƒ•Ó–„Ô–„¤“…@O@Æ“‡@‰•„‰ƒ£‰•‡@£–@¢ƒ•@£ˆ…@“–„@”–„¤“…@†–™@“‰•’@„…—…•„…•ƒ‰…¢@•„@¢£–™…@‰•@£ˆ…@——“‰ƒ£‰–•}¢@–¤£—¤£¢@ƒ–““…ƒ£‰–•K@O@£™¤…¢¢…”‚“…™m¢¢…”‚“¨â¨¢“‰‚Ã–•ƒ£…•£‰–•@O@Á@ƒ–””`¢…—™£…„@“‰¢£@–†@“‰‚™™‰…¢@£–@‚…@ƒ–•ƒ£…•£…„@‰•@¢¨¢“‰‚@„¤™‰•‡@¢¢…”‚“¨@¢£…—@O@£™¤…¢¢…”‚“…™m“‰•’Å„‰£â¨¢“‰‚Ã–•ƒ£…•£‰–•@O@Á@ƒ–””`¢…—™£…„@“‰¢£@–†@“‰‚™™‰…¢@£–@‚…@ƒ–•ƒ£…•£…„@‰•@¢¨¢“‰‚@„¤™‰•‡@“‰•’Å„‰£@¢£…—@O@£™¤…{{{@ÂÔâK—™–—…™£‰…¢Á——“‰ƒ£‰–•@—™–—…™£‰…¢@¤¢…„@‚¨@©Á——Â¤‰“„a“•‡¤‡…aÂÔâK‡™––¥¨×™–—…™£¨@O@Ä…¢ƒ™‰—£‰–•@O@Ö¥…™™‰„‚“…```@O@```@O@```‚”¢m†‰“…Â¤‰“„Ù•’@O@Ä…†¤“£@ÂÔâ@—™–‡™”@‚¤‰“„@™•’K@ä¢…„@£–@¢–™£@ÂÔâ@‚¤‰“„@†‰“…@¢¤‚`“‰¢£K@Ó…¥…@…”—£¨K@O@£™¤…‚”¢m”§ÙÃ@O@Ä…†¤“£@ÂÔâ@”§‰”¤”@ÙÃ@““–¦…„K@O@£™¤…‚”¢mƒ–—¨Ç…•×™”¢@O@Ä…†¤“£@—™”…£…™¢@†–™@£ˆ…@ƒ–—¨‚––’@‡…•…™£‰–•@¢£…—K@O@£™¤…‚”¢mƒ–”—‰“…×™”¢@O@Ä…†¤“£@—™”…£…™¢@†–™@£ˆ…@ƒ–”—‰“£‰–•@¢£…—K@O@£™¤…‚”¢m“‰•’Å„‰£×™”¢@O@Ä…†¤“£@—™”…£…™¢@†–™@£ˆ…@“‰•’@…„‰£@¢£…—K@O@£™¤…‚”¢m‰”—ƒ£×™–—…™£¨Ó‰¢£@O@Ó‰¢£@–†@‚¤‰“„@—™–—…™£‰…¢@ƒ¤¢‰•‡@—™–‡™”¢@£–@™…‚¤‰“„@¦ˆ…•@ƒˆ•‡…„@O@†“¢…‚”¢m¢£–™…ââÉ@O@Æ“‡@£–@¢£–™…@‚‚™…¥@‡‰£@ˆ¢ˆ@‰•@¢¢‰@†‰…“„@‰•@“‰•’@¢£…—@O@£™¤…‚”¢m„…—“–¨ã¨—…@O@„…—“–¨ã¨—…@†–™@‚¤‰“„@–¤£—¤£@O@£™¤…‚”¢mƒ–—¨m„…—“–¨ã¨—…@O@„…—“–¨ã¨—…@†–™@‡…•…™£…„@ƒ–—¨‚––’¢@O@£™¤…{{{@Ã–‚–“K—™–—…™£‰…¢Á——“‰ƒ£‰–•@—™–—…™£‰…¢@¤¢…„@‚¨@©Á——Â¤‰“„a“•‡¤‡…aÃ–‚–“K‡™––¥¨×™–—…™£¨@O@Ä…¢ƒ™‰—£‰–•@O@Ö¥…™™‰„‚“…```@O@```@O@```ƒ–‚–“m†‰“…Â¤‰“„Ù•’@O@Ä…†¤“£@Ã–‚–“@—™–‡™”@‚¤‰“„@™•’K@ä¢…„@£–@¢–™£@Ã–‚–“@‚¤‰“„@†‰“…@¢¤‚`“‰¢£K@Ó…¥…@…”—£¨K@O@£™¤…ƒ–‚–“m„…—…•„…•ƒ¨â…™ƒˆ@O@Ã–‚–“@„…—…•„…•ƒ¨â…™ƒˆ@ƒ–•†‰‡¤™£‰–•@£–@ƒ–•†‰‡¤™…@£ˆ…@â…™ƒˆ×£ˆÄ…—…•„…•ƒ¨Ù…¢–“¥…™K@Æ–™”£@‰¢@@ƒ–•ƒ£…•£…„@¢£™‰•‡@–†@¢…™ƒˆ×£ˆ@ƒ–•†‰‡¤™£‰–•¢K@â£™‰•‡¢@™…—™…¢…•£‰•‡@£ˆ…@â…™ƒˆ×£ˆ¢@„…†‰•…„@‰•@y——“‰ƒ£‰–•`ƒ–•†a——“‰ƒ£‰–•K—™–—…™£‰…¢yK@O@£™¤…ƒ–‚–“mƒ–”—‰“…™å…™¢‰–•@O@Ä…†¤“£@Ã–‚–“@ƒ–”—‰“…™@¥…™¢‰–•K@O@£™¤…ƒ–‚–“mƒ–”—‰“…Ô§ÙÃ@O@Ä…†¤“£@ƒ–”—‰“…@”§‰”¤”@ÙÃ@““–¦…„K@O@£™¤…ƒ–‚–“m“‰•’Å„‰£Ô§ÙÃ@O@Ä…†¤“£@“‰•’@…„‰£@”§‰”¤”@ÙÃ@““–¦…„K@O@£™¤…ƒ–‚–“mƒ–”—‰“…×™”¢@O@Ä…†¤“£@‚¢…@ƒ–”—‰“…@—™”…£…™¢K@O@£™¤…ƒ–‚–“mƒ–”—‰“…ÃÉÃâ×™”¢@O@Ä…†¤“£@ÃÉÃâ@ƒ–”—‰“…@—™”…£…™¢K@Á——…•„…„@£–@‚¢…@—™”…£…™¢@‰†@ˆ¢@¥“¤…KO@£™¤…ƒ–‚–“mƒ–”—‰“…âØÓ×™”¢@O@Ä…†¤“£@âØÓ@ƒ–”—‰“…@—™”…£…™¢K@Á——…•„…„@£–@‚¢…@—™”…£…™¢@‰†@ˆ¢@¥“¤…K@O@£™¤…ƒ–‚–“mƒ–”—‰“…Å™™–™×™…†‰§×™”¢@O@ÉÄ©@¤¢…™@‚¤‰“„@—™”…£…™¢K@Á——…•„…„@£–@‚¢…@—™”…£…™¢@‰†@ˆ¢@¥“¤…K@O@£™¤…ƒ–‚–“m“‰•’Å„‰£×™”¢@O@Ä…†¤“£@“‰•’@…„‰£@—™”…£…™¢K@O@£™¤…ƒ–‚–“mƒ–”—‰“…Ä…‚¤‡×™”¢@O@Ä…†¤“£@Ä…‚¤‡@ƒ–”—‰“…@—™”…£…™¢K@Á——…•„…„@£–@‚¢…@—™”…£…™¢@‰†@™¤••‰•‡@¦‰£ˆ@„…‚¤‡@†“‡@¢…£K@O@£™¤…ƒ–‚–“m¢£–™…ââÉ@O@Æ“‡@£–@¢£–™…@‚‚™…¥@‡‰£@ˆ¢ˆ@‰•@¢¢‰@†‰…“„@‰•@“‰•’@¢£…—@O@£™¤…ƒ–‚–“m‰”—ƒ£×™–—…™£¨Ó‰¢£@O@Ó‰¢£@–†@‚¤‰“„@—™–—…™£‰…¢@ƒ¤¢‰•‡@—™–‡™”¢@£–@™…‚¤‰“„@¦ˆ…•@ƒˆ•‡…„@O@†“¢…ƒ–‚–“m‰”—ƒ£×™–—…™£¨Ó‰¢£ÃÉÃâ@O@Ó‰¢£@–†@ÃÉÃâ@‚¤‰“„@—™–—…™£‰…¢@ƒ¤¢‰•‡@—™–‡™”¢@£–@™…‚¤‰“„@¦ˆ…•@ƒˆ•‡…„@O@†“¢…ƒ–‚–“m‰”—ƒ£×™–—…™£¨Ó‰¢£âØÓ@O@Ó‰¢£@–†@âØÓ@‚¤‰“„@—™–—…™£‰…¢@ƒ¤¢‰•‡@—™–‡™”¢@£–@™…‚¤‰“„@¦ˆ…•@ƒˆ•‡…„@O@†“¢…ƒ–‚–“m“‰•’Å„‰£@O@Æ“‡@‰•„‰ƒ£‰•‡@£–@…§…ƒ¤£…@£ˆ…@“‰•’@…„‰£@¢£…—@£–@—™–„¤ƒ…@@“–„@”–„¤“…@†–™@£ˆ…@¢–¤™ƒ…@†‰“…K@@É†@†“¢…@£ˆ…•@@–‚‘…ƒ£@„…ƒ’@¦‰““@‚…@ƒ™…£…„@‰•¢£…„@†–™@“£…™@“‰•’‰•‡K@O@£™¤…ƒ–‚–“m“‰•’Å„‰£â£™…”@O@Ö—£‰–•“@“‰•’Å„‰£â£™…”@„…†‰•‰•‡@„„‰£‰–•“@“‰•’@‰•¢£™¤ƒ£‰–•¢@¥‰@âèâÉÕ@„„@OA£™¤…ƒ–‚–“m“‰•’Ä…‚¤‡Å§‰£@OA“‰•’Å„‰£â£™…”@£–@——…•„@@„…‚¤‡@…§‰£@¥‰@âèâÉÕ@„„@OA£™¤…ƒ–‚–“m„…—“–¨ã¨—…@O@„…†¤“£@„…—“–¨ã¨—…@†–™@‚¤‰“„@–¤£—¤£@O@£™¤…ƒ–‚–“m„…—“–¨ã¨—…ÃÉÃâ@O@„…—“–¨ã¨—…@†–™@‚¤‰“„@–¤£—¤£@†–™@‚¤‰“„@†‰“…¢@¦ˆ…™…@‰¢ÃÉÃâ~£™¤…@O@£™¤…ƒ–‚–“m„…—“–¨ã¨—…ÄÓÉ@O@„…—“–¨ã¨—…@†–™@‚¤‰“„@–¤£—¤£@†–™@‚¤‰“„@†‰“…¢@¦‰£ˆ@‰¢ÄÓÉ~£™¤…@O@£™¤…ƒ–‚–“m¢ƒ•Ó–„Ô–„¤“…@O@Æ“‡@‰•„‰ƒ£‰•‡@£–@¢ƒ•@£ˆ…@“–„@”–„¤“…@†–™@“‰•’@„…—…•„…•ƒ‰…¢@•„@¢£–™…@‰•@£ˆ…@——“‰ƒ£‰–•}¢@–¤£—¤£¢@ƒ–““…ƒ£‰–•K@O@£™¤…ƒ–‚–“mƒ–”—‰“…â¨¢“‰‚Ã–•ƒ£…•£‰–•@O@Á@ƒ–””`¢…—™£…„@“‰¢£@–†@“‰‚™™‰…¢@£–@‚…@ƒ–•ƒ£…•£…„@‰•@¢¨¢“‰‚@„¤™‰•‡@ƒ–”—‰“…@¢£…—@O@£™¤…ƒ–‚–“m“‰•’Å„‰£â¨¢“‰‚Ã–•ƒ£…•£‰–•@O@Á@ƒ–””`¢…—™£…„@“‰¢£@–†@“‰‚™™‰…¢@£–@‚…@ƒ–•ƒ£…•£…„@‰•@¢¨¢“‰‚@„¤™‰•‡@“‰•’Å„‰£@¢£…—@O@£™¤…{{{@Ó‰•’Å„‰£K—™–—…™£‰…¢Á——“‰ƒ£‰–•@—™–—…™£‰…¢@¤¢…„@‚¨@©Á——Â¤‰“„a“•‡¤‡…aÓ‰•’Å„‰£K‡™––¥¨×™–—…™£¨@O@Ä…¢ƒ™‰—£‰–•@O@Ö¥…™™‰„‚“…```@O@```@O@```“‰•’…„‰£m†‰“…Â¤‰“„Ù•’@O@Ä…†¤“£@“‰•’@ƒ™„@‚¤‰“„@™•’K@ä¢…„@£–@¢–™£@“‰•’@ƒ™„@‚¤‰“„@¢¤‚`“‰¢£K@Ó…¥…@…”—£¨K@O@£™¤…“‰•’…„‰£m”§ÙÃ@O@Ä…†¤“£@“‰•’@…„‰£@”§‰”¤”@ÙÃ@““–¦…„K@O@£™¤…“‰•’…„‰£m—™”¢@O@Ä…†¤“£@“‰•’@…„‰£@—™”…£…™¢K@O@£™¤…“‰•’…„‰£m‰”—ƒ£×™–—…™£¨Ó‰¢£@O@Ó‰¢£@–†@‚¤‰“„@—™–—…™£‰…¢@ƒ¤¢‰•‡@—™–‡™”¢@£–@™…‚¤‰“„@¦ˆ…•@ƒˆ•‡…„@O@†“¢…“‰•’…„‰£m¢£–™…ââÉ@O@Æ“‡@£–@¢£–™…@‚‚™…¥@‡‰£@ˆ¢ˆ@‰•@¢¢‰@†‰…“„@‰•@“‰•’@¢£…—@O@£™¤…“‰•’…„‰£m„…—“–¨ã¨—…@O@„…†¤“£@„…—“–¨ã¨—…@†–™@‚¤‰“„@–¤£—¤£@O@£™¤…“‰•’…„‰£m„…—“–¨ã¨—…ÃÉÃâ@O@„…—“–¨ã¨—…@†–™@‚¤‰“„@–¤£—¤£@†–™@‚¤‰“„@†‰“…¢@¦ˆ…™…@‰¢ÃÉÃâ~£™¤…@¢…£@¢@†‰“…@—™–—…™£¨@O@£™¤…“‰•’…„‰£m„…—“–¨ã¨—…ÄÓÉ@O@„…—“–¨ã¨—…@†–™@‚¤‰“„@–¤£—¤£@†–™@‚¤‰“„@†‰“…¢@¦‰£ˆ@‰¢ÄÓÉ~£™¤…@¢…£@¢@†‰“…@—™–—…™£¨@O@£™¤…“‰•’…„‰£m¢ƒ•Ó–„Ô–„¤“…@O@Æ“‡@‰•„‰ƒ£‰•‡@£–@¢ƒ•@£ˆ…@“–„@”–„¤“…@†–™@“‰•’@„…—…•„…•ƒ‰…¢@•„@¢£–™…@‰•@£ˆ…@——“‰ƒ£‰–•}¢@–¤£—¤£¢@ƒ–““…ƒ£‰–•K@O@£™¤…“‰•’Å„‰£m“‰•’Å„‰£â¨¢“‰‚Ã–•ƒ£…•£‰–•@O@Á@ƒ–””`¢…—™£…„@“‰¢£@–†@“‰‚™™‰…¢@£–@‚…@ƒ–•ƒ£…•£…„@‰•@¢¨¢“‰‚@„¤™‰•‡@“‰•’Å„‰£@¢£…—@O@£™¤…{{{@×ÓÉK—™–—…™£‰…¢Á——“‰ƒ£‰–•@—™–—…™£‰…¢@¤¢…„@‚¨@©Á——Â¤‰“„a“•‡¤‡…aÓ‰•’Å„‰£K‡™––¥¨×™–—…™£¨@O@Ä…¢ƒ™‰—£‰–•@O@Ö¥…™™‰„‚“…```@O@```@O@```—“‰m†‰“…Â¤‰“„Ù•’@O@Ä…†¤“£@×ÓÉ@—™–‡™”@‚¤‰“„@™•’K@ä¢…„@£–@¢–™£@×ÓÉ@—™–‡™”@¢¤‚`“‰¢£K@Ó…¥…@…”—£¨K@O@£™¤…—“‰m„…—…•„…•ƒ¨â…™ƒˆ@O@×ÓÉ@„…—…•„…•ƒ¨â…™ƒˆ@ƒ–•†‰‡¤™£‰–•@£–@ƒ–•†‰‡¤™…@£ˆ…@â…™ƒˆ×£ˆÄ…—…•„…•ƒ¨Ù…¢–“¥…™K@Æ–™”£@‰¢@@ƒ–•ƒ£…•£…„@¢£™‰•‡@–†@¢…™ƒˆ×£ˆ@ƒ–•†‰‡¤™£‰–•¢K@â£™‰•‡¢@™…—™…¢…•£‰•‡@£ˆ…@â…™ƒˆ×£ˆ¢@„…†‰•…„@‰•@y——“‰ƒ£‰–•`ƒ–•†a——“‰ƒ£‰–•K—™–—…™£‰…¢yK@O@£™¤…—“‰mƒ–”—‰“…™å…™¢‰–•@O@Ä…†¤“£@×ÓÉ@ƒ–”—‰“…™@¥…™¢‰–•K@O@£™¤…—“‰mƒ–”—‰“…Ô§ÙÃ@O@Ä…†¤“£@ƒ–”—‰“…@”§‰”¤”@ÙÃ@““–¦…„K@O@£™¤…—“‰m“‰•’Å„‰£Ô§ÙÃ@O@Ä…†¤“£@“‰•’@…„‰£@”§‰”¤”@ÙÃ@““–¦…„K@O@£™¤…—“‰mƒ–”—‰“…×™”¢@O@Ä…†¤“£@‚¢…@ƒ–”—‰“…@—™”…£…™¢K@O@£™¤…—“‰mƒ–”—‰“…ÃÉÃâ×™”¢@O@Ä…†¤“£@ÃÉÃâ@ƒ–”—‰“…@—™”…£…™¢K@Á——…•„…„@£–@‚¢…@—™”…£…™¢@‰†@ˆ¢@¥“¤…KO@£™¤…—“‰mƒ–”—‰“…âØÓ×™”¢@O@Ä…†¤“£@âØÓ@ƒ–”—‰“…@—™”…£…™¢K@Á——…•„…„@£–@‚¢…@—™”…£…™¢@‰†@ˆ¢@¥“¤…K@O@£™¤…—“‰mƒ–”—‰“…Ä…‚¤‡×™”¢@O@Ä…†¤“£@Ä…‚¤‡@ƒ–”—‰“…@—™”…£…™¢K@Á——…•„…„@£–@‚¢…@—™”…£…™¢@‰†@™¤••‰•‡@¦‰£ˆ@„…‚¤‡@†“‡@¢…£K@O@£™¤…—“‰mƒ–”—‰“…ÉÔâ×™”¢@O@Ä…†¤“£@ÉÔâ@ƒ–”—‰“…@—™”…£…™¢K@Á——…•„…„@£–@—™”¢@†–™@†‰“…@¦‰£ˆ@y‰¢ÉÔây@†“‡@£¤™•…„@–•K@O@£™¤…—“‰mƒ–”—‰“…Å™™–™×™…†‰§×™”¢@O@ÉÄ©@¤¢…™@‚¤‰“„@—™”…£…™¢K@Á——…•„…„@£–@‚¢…@—™”…£…™¢@‰†@ˆ¢@¥“¤…K@O@£™¤…—“‰m‰”—ƒ£×™–—…™£¨Ó‰¢£@O@Ó‰¢£@–†@‚¤‰“„@—™–—…™£‰…¢@ƒ¤¢‰•‡@—™–‡™”¢@£–@™…‚¤‰“„@¦ˆ…•@ƒˆ•‡…„@O@†“¢…—“‰m‰”—ƒ£×™–—…™£¨Ó‰¢£ÃÉÃâ@O@Ó‰¢£@–†@ÃÉÃâ@‚¤‰“„@—™–—…™£‰…¢@ƒ¤¢‰•‡@—™–‡™”¢@£–@™…‚¤‰“„@¦ˆ…•@ƒˆ•‡…„@O@†“¢…—“‰m‰”—ƒ£×™–—…™£¨Ó‰¢£âØÓ@O@Ó‰¢£@–†@âØÓ@‚¤‰“„@—™–—…™£‰…¢@ƒ¤¢‰•‡@—™–‡™”¢@£–@™…‚¤‰“„@¦ˆ…•@ƒˆ•‡…„@O@†“¢…—“‰m“‰•’Å„‰£×™”¢@O@Ä…†¤“£@“‰•’@…„‰£@—™”…£…™¢K@O@£™¤…—“‰m“‰•’Å„‰£â£™…”@O@Ö—£‰–•“@“‰•’Å„‰£â£™…”@„…†‰•‰•‡@„„‰£‰–•“@“‰•’@‰•¢£™¤ƒ£‰–•¢@¥‰@âèâÉÕ@„„@OA£™¤…—“‰m“‰•’Ä…‚¤‡Å§‰£@OA“‰•’Å„‰£â£™…”@£–@——…•„@@„…‚¤‡@…§‰£@¥‰@âèâÉÕ@„„@OA£™¤…—“‰m¢£–™…ââÉ@O@Æ“‡@£–@¢£–™…@‚‚™…¥@‡‰£@ˆ¢ˆ@‰•@¢¢‰@†‰…“„@‰•@“‰•’@¢£…—@O@£™¤…—“‰m‰”—ƒ£×™–—…™£¨Ó‰¢£@O@Ó‰¢£@–†@‚¤‰“„@—™–—…™£‰…¢@ƒ¤¢‰•‡@—™–‡™”¢@£–@™…‚¤‰“„@¦ˆ…•@ƒˆ•‡…„@O@†“¢…—“‰m‰”—ƒ£×™–—…™£¨Ó‰¢£ÃÉÃâ@O@Ó‰¢£@–†@ÃÉÃâ@‚¤‰“„@—™–—…™£‰…¢@ƒ¤¢‰•‡@—™–‡™”¢@£–@™…‚¤‰“„@¦ˆ…•@ƒˆ•‡…„@O@†“¢…—“‰m‰”—ƒ£×™–—…™£¨Ó‰¢£âØÓ@O@Ó‰¢£@–†@âØÓ@‚¤‰“„@—™–—…™£‰…¢@ƒ¤¢‰•‡@—™–‡™”¢@£–@™…‚¤‰“„@¦ˆ…•@ƒˆ•‡…„@O@†“¢…—“‰m“‰•’Å„‰£@O@Æ“‡@‰•„‰ƒ£‰•‡@£–@…§…ƒ¤£…@£ˆ…@“‰•’@…„‰£@¢£…—@£–@—™–„¤ƒ…@@“–„@”–„¤“…@†–™@£ˆ…@¢–¤™ƒ…@†‰“…K@@É†@†“¢…@£ˆ…•@@–‚‘…ƒ£@„…ƒ’@¦‰““@‚…@ƒ™…£…„@‰•¢£…„@†–™@“£…™@“‰•’‰•‡K@O@£™¤…—“‰m„…—“–¨ã¨—…@O@„…†¤“£@„…—“–¨ã¨—…@†–™@‚¤‰“„@–¤£—¤£@O@£™¤…—“‰m„…—“–¨ã¨—…ÃÉÃâ@O@„…—“–¨ã¨—…@†–™@‚¤‰“„@–¤£—¤£@†–™@‚¤‰“„@†‰“…¢@¦ˆ…™…@‰¢ÃÉÃâ~£™¤…@O@£™¤…—“‰m„…—“–¨ã¨—…ÄÓÉ@O@„…—“–¨ã¨—…@†–™@‚¤‰“„@–¤£—¤£@†–™@‚¤‰“„@†‰“…¢@¦‰£ˆ@‰¢ÄÓÉ~£™¤…@O@£™¤…—“‰m¢ƒ•Ó–„Ô–„¤“…@O@Æ“‡@‰•„‰ƒ£‰•‡@£–@¢ƒ•@£ˆ…@“–„@”–„¤“…@†–™@“‰•’@„…—…•„…•ƒ‰…¢@•„@¢£–™…@‰•@£ˆ…@——“‰ƒ£‰–•}¢@–¤£—¤£¢@ƒ–““…ƒ£‰–•K@O@£™¤…—“‰mƒ–”—‰“…â¨¢“‰‚Ã–•ƒ£…•£‰–•@O@Á@ƒ–””`¢…—™£…„@“‰¢£@–†@“‰‚™™‰…¢@£–@‚…@ƒ–•ƒ£…•£…„@‰•@¢¨¢“‰‚@„¤™‰•‡@ƒ–”—‰“…@¢£…—@O@£™¤…—“‰m“‰•’Å„‰£â¨¢“‰‚Ã–•ƒ£…•£‰–•@O@Á@ƒ–””`¢…—™£…„@“‰¢£@–†@“‰‚™™‰…¢@£–@‚…@ƒ–•ƒ£…•£…„@‰•@¢¨¢“‰‚@„¤™‰•‡@“‰•’Å„‰£@¢£…—@O@£™¤…{{{@‚‰•„K—™–—…™£‰…¢Á——“‰ƒ£‰–•@—™–—…™£‰…¢@¤¢…„@‚¨@©Á——Â¤‰“„a“•‡¤‡…aÃÖÂÖÓK‡™––¥¨×™–—…™£¨@O@Ä…¢ƒ™‰—£‰–•@O@Ö¥…™™‰„‚“…```@O@```@O@```‚‰•„m—…™†–™”Â‰•„×ƒ’‡…@O@Ä…†¤“£@¥™‰‚“…@£–@—…™†–™”@ÄÂò@‚‰•„@¢@—™£@–†@@ÄÂÂ@ä¢…™@Â¤‰“„@M„…†¤“£@¥“¤…z†“¢…]@O@£™¤…‚‰•„m™¤•É¢—†Ã–•†Ä‰™@O@O‚‰•„m„‚òÓ–ƒ£‰–•@O@ãˆ…@•”…@–†@£ˆ…@ÄÂò@¢¤‚¢¨¢£…”@O@£™¤…‚‰•„mƒ–““…ƒ£‰–•ÉÄ@O@ãˆ…@ÄÂò@ƒ–““…ƒ£‰–•@M×ƒ’‡…]@•”…@O@£™¤…‚‰•„m—ƒ’‡…Ö¦•…™@O@ãˆ…@–¦•…™@–†@£ˆ…@—ƒ’‡…k@‰†@“…†£@…”—£¨@£ˆ…@¤¢…@…§…ƒ¤£‰•‡@£ˆ…@ƒ–””•„@¦‰““@‚…@¤¢…„@O@£™¤…‚‰•„m˜¤“‰†‰…™@O@ãˆ…@¥“¤…@–†@£ˆ…@‰”—“‰ƒ‰£@˜¤“‰†‰…™@O@£™¤…‚‰•„m”§ÙÃ@O@Ä…†¤“£@‚‰•„@”§‰”¤”@ÙÃ@““–¦…„K@O@£™¤…{{{@ÔÆâK—™–—…™£‰…¢Á——“‰ƒ£‰–•@—™–—…™£‰…¢@¤¢…„@‚¨@©Á——Â¤‰“„a“•‡¤‡…aÔÆâK‡™––¥¨×™–—…™£¨@O@Ä…¢ƒ™‰—£‰–•@O@Ö¥…™™‰„‚“…```@O@```@O@```”†¢m†‰“…Â¤‰“„Ù•’@O@Ä…†¤“£@ÔÆâ@—™–‡™”@‚¤‰“„@™•’K@ä¢…„@£–@¢–™£@ÔÆâ@‚¤‰“„@†‰“…@¢¤‚`“‰¢£K@Ó…¥…@…”—£¨K@O@£™¤…”†¢m—ˆ¢…ñÔ§ÙÃ@O@Ä…†¤“£@ÔÆâ@×ˆ¢…@ñ@”§‰”¤”@ÙÃ@““–¦…„K@O@£™¤…”†¢m—ˆ¢…òÔ§ÙÃ@O@Ä…†¤“£@ÔÆâ@×ˆ¢…@ò@”§‰”¤”@ÙÃ@““–¦…„K@O@£™¤…”†¢m—ˆ¢…òÅ§…ƒ¤£‰–•@OAÆ“‡@‰†@ÔÆâ@×ˆ¢…@ò@—™–ƒ…¢¢@¢ˆ–¤“„@‚…@…§…ƒ¤£…„K@Ä…†¤“£z@†“¢…@O@£™¤…”†¢m—ˆ¢…ñ×™”¢@O@Ä…†¤“£@—™”…£…™¢@†–™@£ˆ…@—ˆ¢…@ñ@¢£…—K@O@£™¤…”†¢m—ˆ¢…ò×™”¢@O@Ä…†¤“£@—™”…£…™¢@†–™@£ˆ…@—ˆ¢…@ò@¢£…—K@O@£™¤…”†¢m‰”—ƒ£×™–—…™£¨Ó‰¢£@O@Ó‰¢£@–†@‚¤‰“„@—™–—…™£‰…¢@ƒ¤¢‰•‡@—™–‡™”¢@£–@™…‚¤‰“„@¦ˆ…•@ƒˆ•‡…„@O@†“¢…”†¢m„…—“–¨ã¨—…@O@„…†¤“£@„…—“–¨ã¨—…@†–™@‚¤‰“„@–¤£—¤£@O@£™¤…{{{@ÄÂÄ‡…•K—™–—…™£‰…¢Á——“‰ƒ£‰–•@—™–—…™£‰…¢@¤¢…„@‚¨@©Á——Â¤‰“„a“•‡¤‡…aÄÂÄ‡…•K‡™––¥¨×™–—…™£¨@O@Ä…¢ƒ™‰—£‰–•@O@Ö¥…™™‰„‚“…```@O@```@O@```„‚„‡…•m†‰“…Â¤‰“„Ù•’@O@Ä…†¤“£@‚¤‰“„@—™–‡™”@‚¤‰“„@™•’K@ä¢…„@£–@¢–™£@ÄÂÄ‡…•@‚¤‰“„@†‰“…@¢¤‚`“‰¢£K@Ó…¥…@…”—£¨K@O@£™¤…„‚„‡…•m—‡”×™”¢@O@Ä…†¤“£@ÄÂÄ‡…•@—™”…£…™¢K@O@£™¤…„‚„‡…•m“‰•’Å„‰£×™”¢@O@Ä…†¤“£@—™”…£…™¢@†–™@£ˆ…@“‰•’@…„‰£@¢£…—K@O@£™¤…„‚„‡…•mƒ–”—‰“…Å™™–™×™…†‰§×™”¢@O@Ä…†¤“£@—™”…£…™¢@£–@¢¤——–™£@™…”–£…@…™™–™@†……„‚ƒ’@‰•@¤¢…™@‚¤‰“„@¢ƒ…•™‰–¢@OA£™¤…„‚„‡…•m¢¢…”‚“…™Ô§ÙÃ@O@Ä…†¤“£@“‰•’@…„‰£@”§‰”¤”@ÙÃ@““–¦…„K@O@£™¤…„‚„‡…•m“‰•’Å„‰£Ô§ÙÃ@O@Ä…†¤“£@“‰•’@…„‰£@”§‰”¤”@ÙÃ@““–¦…„K@O@£™¤…„‚„‡…•m‰”—ƒ£×™–—…™£¨Ó‰¢£@O@Ó‰¢£@–†@‚¤‰“„@—™–—…™£‰…¢@ƒ¤¢‰•‡@—™–‡™”¢@£–@™…‚¤‰“„@¦ˆ…•@ƒˆ•‡…„@O@†“¢…„‚„‡…•m„…—“–¨ã¨—…@O@„…†¤“£@„…—“–¨ã¨—…@†–™@‚¤‰“„@–¤£—¤£@O@£™¤…{{{@×âÂ‡…•K—™–—…™£‰…¢Á——“‰ƒ£‰–•@—™–—…™£‰…¢@¤¢…„@‚¨@©Á——Â¤‰“„a“•‡¤‡…a×âÂ‡…•K‡™––¥¨×™–—…™£¨@O@Ä…¢ƒ™‰—£‰–•@O@Ö¥…™™‰„‚“…```@O@```@O@```—¢‚‡…•m†‰“…Â¤‰“„Ù•’@O@Ä…†¤“£@‚¤‰“„@—™–‡™”@‚¤‰“„@™•’K@ä¢…„@£–@¢–™£@ÄÂÄ‡…•@‚¤‰“„@†‰“…@¢¤‚`“‰¢£K@Ó…¥…@…”—£¨K@O@£™¤…—¢‚‡…•m—‡”×™”¢@O@Ä…†¤“£@×âÂ‡…•@—™”…£…™¢K@O@£™¤…—¢‚‡…•m“‰•’Å„‰£×™”¢@O@Ä…†¤“£@—™”…£…™¢@†–™@£ˆ…@“‰•’@…„‰£@¢£…—K@O@£™¤…—¢‚‡…•mƒ–”—‰“…Å™™–™×™…†‰§×™”¢@O@Ä…†¤“£@—™”…£…™¢@£–@¢¤——–™£@™…”–£…@…™™–™@†……„‚ƒ’@‰•@¤¢…™@‚¤‰“„@¢ƒ…•™‰–¢@OA£™¤…—¢‚‡…•m™¤•ÁÃÂ‡…•@O@×™”…£…™@‰†@ÁÃÂ‡…•@¢ˆ–¤“„@‚…@…§…ƒ¤£…„@™‰‡ˆ£@†£…™@×âÂ‡…•@M„…†¤“£z@£™¤…]@O@£™¤…—¢‚‡…•m¢¢…”‚“…™Ô§ÙÃ@O@Ä…†¤“£@“‰•’@…„‰£@”§‰”¤”@ÙÃ@““–¦…„K@O@£™¤…—¢‚‡…•m“‰•’Å„‰£Ô§ÙÃ@O@Ä…†¤“£@“‰•’@…„‰£@”§‰”¤”@ÙÃ@““–¦…„K@O@£™¤…—¢‚‡…•m‰”—ƒ£×™–—…™£¨Ó‰¢£@O@Ó‰¢£@–†@‚¤‰“„@—™–—…™£‰…¢@ƒ¤¢‰•‡@—™–‡™”¢@£–@™…‚¤‰“„@¦ˆ…•@ƒˆ•‡…„@O@†“¢…—¢‚‡…•m„…—“–¨ã¨—…@O@„…†¤“£@„…—“–¨ã¨—…@†–™@‚¤‰“„@–¤£—¤£@O@£™¤…{{{@ÁÃÂ‡…•K—™–—…™£‰…¢Á——“‰ƒ£‰–•@—™–—…™£‰…¢@¤¢…„@‚¨@©Á——Â¤‰“„a“•‡¤‡…a×âÂ‡…•K‡™––¥¨×™–—…™£¨@O@Ä…¢ƒ™‰—£‰–•@O@Ö¥…™™‰„‚“…```@O@```@O@```ƒ‚‡…•m—‡”×™”¢@O@Ä…†¤“£@ÁÃÂ‡…•@—™”…£…™¢K@O@£™¤…ƒ‚‡…•m—‡”Ô§ÙÃ@O@Ä…†¤“£@ÁÃÂ‡…•@”§‰”¤”@ÙÃ@““–¦…„K@O@£™¤…ƒ‚‡…•m„…—“–¨ã¨—…@O@„…†¤“£@„…—“–¨ã¨—…@†–™@‚¤‰“„@–¤£—¤£@O@£™¤…{{{@é¤•‰£Ã–•†‰‡K—™–—…™£‰…¢Á——“‰ƒ£‰–•@—™–—…™£‰…¢@¤¢…„@‚¨@©Á——Â¤‰“„a“•‡¤‡…aé¤•‰£Ã–•†‰‡K‡™––¥¨×™–—…™£¨@O@Ä…¢ƒ™‰—£‰–•@O@Ö¥…™™‰„‚“…```@O@```@O@```©¤•‰£m”§×¢¢ÙÃ@O@Ä…†¤“£@©ä•‰£@”§‰”¤”@ÙÃ@““–¦…„@†–™@@×¢¢K@O@£™¤…©¤•‰£m”§æ™•ÙÃ@O@Ä…†¤“£@©ä•‰£@”§‰”¤”@ÙÃ@““–¦…„@†–™@@æ™•‰•‰‡@M…¥…™¨£ˆ‰•‡@‚…¨–•„@£ˆ‰¢@¥“¤…@¦‰““@Æ‰“]K@O@£™¤…©¤•‰£m—“¨‚ƒ’Æ‰“…Å§£…•¢‰–•@O@Ä…†¤“£@©ä•‰£@×“¨‚ƒ’@Æ‰“…@Å§£…•¢‰–•K@O@£™¤…©¤•‰£m„…—…•„…•ƒ¨â…™ƒˆ@O@Ä…†¤“£@©ä•‰£@„…—…•„…•ƒ¨â…™ƒˆ@ƒ–•†‰‡¤™£‰–•@£–@ƒ–•†‰‡¤™…@£ˆ…@â…™ƒˆ×£ˆÄ…—…•„…•ƒ¨Ù…¢–“¥…™K@Æ–™”£@‰¢@@ƒ–•ƒ£…•£…„@¢£™‰•‡@–†@¢…™ƒˆ×£ˆ@ƒ–•†‰‡¤™£‰–•¢K@â£™‰•‡¢@™…—™…¢…•£‰•‡@£ˆ…@â…™ƒˆ×£ˆ¢@„…†‰•…„@‰•@y——“‰ƒ£‰–•`ƒ–•†a——“‰ƒ£‰–•K—™–—…™£‰…¢yK@@OA£™¤…©¤•‰£m‚©¤—“¨×™”¢@O@Ä…†¤“£@–—£‰–•¢@—¢¢…„@£–@£ˆ…@©ä•‰£@™¤••…™@Âéä×ÓÁè@OA£™¤…©¤•‰£m¤¢…™Ä…‚¤‡â…¢¢‰–•ã…¢£×™”@O@Ä…‚¤‡@ã––“@ã…¢£@—™”…£…™@£–@‰•‰£‰£…@£ˆ…@„…‚¤‡@¢…¢¢‰–•@O@£™¤…©¤•‰£mÃ–„…Ã–¥…™‡…È–¢£@O@È…„“…¢¢@Ã–„…@Ã–¥…™‡…@Ã–““…ƒ£–™@ˆ–¢£@M‰†@•–£@¢—…ƒ‰†‰…„@ÉÄ©@¦‰““@‚…@¤¢…„@†–™@™…—–™£‰•‡]@O@£™¤…@©¤•‰£mÃ–„…Ã–¥…™‡…×–™£@O@È…„“…¢¢@Ã–„…@Ã–¥…™‡…@Ã–““…ƒ£–™@—–™£@M‰†@•–£@¢—…ƒ‰†‰…„@ÉÄ©@¦‰““@‚…@¤¢…„@†–™@™…—–™£‰•‡]@O@£™¤…@©¤•‰£mÃ–„…Ã–¥…™‡…Ö—£‰–•¢@O@È…„“…¢¢@Ã–„…@Ã–¥…™‡…@Ã–““…ƒ£–™@Ö—£‰–•¢@O@£™¤…{{{@ÃÙÂK—™–—…™£‰…¢Á——“‰ƒ£‰–•@—™–—…™£‰…¢@¤¢…„@‚¨@©Á——Â¤‰“„a“•‡¤‡…aÃÙÂK‡™––¥¨×™–—…™£¨@O@Ä…¢ƒ™‰—£‰–•@O@Ö¥…™™‰„‚“…```@O@```@O@```ƒ™‚m”§ÙÃ@O@ÃÉÃâ@Ù…¢–¤™ƒ…@Â¤‰“„…™@”§‰”¤”@ƒƒ…—£‚“…@™…£¤™•@ƒ–„…@M„…†¤“£@‰¢@ô@‰†@•–£@¢—…ƒ‰†‰…„]@O@£™¤…{{{@ÙÅççK—™–—…™£‰…¢Á——“‰ƒ£‰–•@—™–—…™£‰…¢@¤¢…„@‚¨@©Á——Â¤‰“„a“•‡¤‡…aÙÅççK‡™––¥¨×™–—…™£¨@O@Ä…¢ƒ™‰—£‰–•@O@Ö¥…™™‰„‚“…```@O@```@O@```™…§§mƒ–”—‰“…Ô§ÙÃ@O@Ä…†¤“£@ƒ–”—‰“…@”§‰”¤”@ÙÃ@““–¦…„K@O@£™¤…™…§§m“‰•’Å„‰£Ô§ÙÃ@O@Ä…†¤“£@“‰•’@…„‰£@”§‰”¤”@ÙÃ@““–¦…„K@O@£™¤…™…§§m„…—…•„…•ƒ¨â…™ƒˆ@O@Ä…†¤“£@ÙÅçç@„…—…•„…•ƒ¨â…™ƒˆ@ƒ–•†‰‡¤™£‰–•@£–@ƒ–•†‰‡¤™…@£ˆ…@â…™ƒˆ×£ˆÄ…—…•„…•ƒ¨Ù…¢–“¥…™K@Æ–™”£@‰¢@@ƒ–•ƒ£…•£…„@¢£™‰•‡@–†@¢…™ƒˆ×£ˆ@ƒ–•†‰‡¤™£‰–•¢K@â£™‰•‡¢@™…—™…¢…•£‰•‡@£ˆ…@â…™ƒˆ×£ˆ¢@„…†‰•…„@‰•@y——“‰ƒ£‰–•`ƒ–•†a——“‰ƒ£‰–•K—™–—…™£‰…¢yK@@OA£™¤…™…§§mƒ–”—‰“…×™”¢@O@Ä…†¤“£@‚¢…@ƒ–”—‰“…@—™”…£…™¢K@O@£™¤…™…§§mƒ–”—‰“…™@O@Ä…†¤“£@ÙÅçç@ƒ–”—‰“…™@OA£™¤…™…§§m“‰•’Å„‰£@O@Æ“‡@‰•„‰ƒ£‰•‡@£–@…§…ƒ¤£…@£ˆ…@“‰•’@…„‰£@¢£…—@£–@—™–„¤ƒ…@@ƒ–”—‰“…„@™…§§@†–™@£ˆ…@¢–¤™ƒ…@†‰“…K@O@£™¤…™…§§m“‰•’Å„‰£×™”¢@O@Ä…†¤“£@“‰•’@…„‰£@—™”…£…™¢K@O@£™¤…™…§§m„…—“–¨ã¨—…@O@„…†¤“£@„…—“–¨ã¨—…@OA£™¤…™…§§mƒ…§…ƒm„…—“–¨ã¨—…@O@„…†¤“£@„…—“–¨ã¨—…@ÃÅçÅÃ@OA£™¤…™…§§mƒ–”—‰“…â¨¢“‰‚Ã–•ƒ£…•£‰–•@O@Á@ƒ–””`¢…—™£…„@“‰¢£@–†@“‰‚™™‰…¢@£–@‚…@ƒ–•ƒ£…•£…„@‰•@¢¨¢“‰‚@„¤™‰•‡@ƒ–”—‰“…@¢£…—@O@£™¤…™…§§m“‰•’Å„‰£â¨¢“‰‚Ã–•ƒ£…•£‰–•@O@Á@ƒ–””`¢…—™£…„@“‰¢£@–†@“‰‚™™‰…¢@£–@‚…@ƒ–•ƒ£…•£…„@‰•@¢¨¢“‰‚@„¤™‰•‡@“‰•’Å„‰£@¢£…—@O@£™¤…{{{@ã™•¢†…™K—™–—…™£‰…¢Á——“‰ƒ£‰–•@—™–—…™£‰…¢@¤¢…„@‚¨@©Á——Â¤‰“„a“•‡¤‡…aã™•¢†…™K‡™––¥¨×™–—…™£¨@O@Ä…¢ƒ™‰—£‰–•@O@Ö¥…™™‰„‚“…```@O@```@O@```£™•¢†…™m„…—“–¨ã¨—…@O@„…—“–¨ã¨—…@OA£™¤…£™•¢†…™mƒ–—¨Ô–„…@O@Ã–—¨@”–„…@¤¢…„@„¤™‰•‡@£ˆ…@ƒ–—¨@£–@£ˆ…@£™‡…£@„£@¢…£@O@£™¤…{{{@“•‡¤‡…Ã–•†‰‡¤™£‰–•Ô——‰•‡K—™–—…™£‰…¢â”—“…@“•‡¤‡…@ƒ–•†‰‡¤™£‰–•@”——‰•‡@—™–—…™£‰…¢@¤¢…„@‚¨@„‚‚`©——‚¤‰“„a¤£‰“‰£‰…¢aÂ¤‰“„ä£‰“‰£‰…¢K‡™––¥¨Kãˆ‰¢@ƒ–•£‰•¢@£ˆ…@”——‰•‡@–†@£ˆ…@†‰“…¢@•„@£ˆ…‰™@ƒ–™™…¢—–•„‰•‡@Ó•‡¤‡…@Ã–•†‰‡¤™£‰–•@—™–—…™£‰…¢@†‰“…¢@™…¢‰„‰•‡@‰•@y©Á——Â¤‰“„a‚¤‰“„`ƒ–•†a“•‡¤‡…`ƒ–•†y@£–@–¥…™™‰„…@£ˆ…@„…†¤“£@†‰“…@—™–—…™£‰…¢KÅ§”—“…z@ãˆ…@…•£™¨@`@y…—¢•‚™¥“Kƒ‚“~“•‡¤‡…Ã–•†‰‡×™–—¢ğñyk@”…•¢@£ˆ…@†‰“…@—™–—…™£‰…¢@–†@†‰“…@y…—¢•‚™¥“Kƒ‚“y@¦‰““@‚…@–¥…™™‰„„…•@‚¨@£ˆ…@—™–—…™£‰…¢@”…•£‰–•…„@‰•@y©Á——Â¤‰“„a‚¤‰“„`ƒ–•†a“•‡¤‡…`ƒ–•†a“•‡¤‡…Ã–•†‰‡×™–—¢ğñK—™–—…™£‰…¢yâ……@£ˆ…@­“•‡¤‡…@ƒ–•†‰‡¤™£‰–•@”——‰•‡@„–ƒ¤”…•££‰–•½MKKaKKa„–ƒ¢aÆ‰“…×™–—…™£¨Ô•‡…”…•£K”„{“•‡¤‡…`ƒ–•†‰‡¤™£‰–•`”——‰•‡]@†–™@”–™…@„…£‰“¢@–•@ˆ–¦@£–@…•‚“…@•„@¤¢…@“•‡¤‡…@ƒ–•†‰‡¤™£‰–•@”——‰•‡K
+# Application Configuration
+This folder contains application specific configuration properties used by the zAppBuild Groovy build and utility scripts. It is intended to be copied as a high level folder in the application repository or main application repository if the application source files are distributed across multiple repositories. Once copied to the application repository, users should review the default property files and modify any values as needed.
+
+At the beginning of the build, the `application.properties` file will automatically be searched and loaded if it exists into the [DBB BuildProperties class](https://www.ibm.com/docs/en/dbb/2.0?topic=apis-build-properties#build-properties-class). The `application.properties` file is by default searched in the `application-conf` folder of the application, but this can be configured through the `applicationConfDir` property in [build-conf/build.properties](../../build-conf/build.properties). Use the `applicationPropFiles` property (see table below) to load additional application property files.
+
+Properties can be overwritten on a per file basis through DBB Build Properties file properties. The tables below indicate which properties keys can be overwritten. It is recommended to manage these overwrites in `file.properties`.
+
+## Property File Descriptions
+Since all properties will be loaded into a single static instance of BuildProperties, the organization and naming convention of the *property files* are somewhat arbitrary and targeted more for self documentation and understanding. Properties related to a language script are prefixed with the name of the language script (i.e `cobol_compileParms`).
+
+### application.properties
+This property file is loaded automatically at the beginning of the build and contains application specific properties used mainly by `build.groovy` but can also be a place to declare properties used by multiple language scripts. Additional property files are loaded based on the content of the `applicationPropFiles` property.
+
+Property | Description | Overridable
+--- | --- | ---
+runzTests | Boolean value to specify if zUnit tests should be run.  Defaults to `false`, to enable zUnit Tests, set value to `true`. | false
+applicationPropFiles | Comma separated list of additional application property files to load. Supports both absolute and relative file paths.  Relative paths assumed to be relative to ${workspace}/${application}/application-conf/. | false
+applicationSrcDirs | Comma separated list of all source directories included in application build. Each directory is assumed to be a local Git repository clone. Supports both absolute and relative paths though for maximum reuse of collected dependency data relative paths should be used.  Relative paths assumed to be relative to ${workspace}. | false
+buildOrder | Comma separated list of the build script processing order. | false
+formatConsoleOutput |Â Flag to log output in table views instead of printing raw JSON data | false
+mainBuildBranch | The main build branch of the main application repository.  Used for cloning collections for topic branch builds instead of rescanning the entire application. | false
+gitRepositoryURL |Â git repository URL of the application repository to establish links to the changed files in the build result properties | false
+excludeFileList | Files to exclude when scanning or running full build. | false
+skipImpactCalculationList | Files for which the impact analysis should be skipped in impact build | false
+jobCard | JOBCARD for JCL execs | false
+**Build Property management** | | 
+loadFileLevelProperties | Flag to enable the zAppBuild capability to load individual artifact properties files for a build file | true
+loadLanguageConfigurationProperties | Flag to enable the zAppBuild capability to load language configuration properties for build files mapped in languageConfigurationMapping.properties | true
+propertyFilePath | relative path to folder containing individual artifact properties files | true
+propertyFileExtension | file extension for individual artifact properties files | true
+**Dependency and Impact resolution configuration** ||
+resolveSubsystems | boolean flag to configure the SearchPathDependencyResolver to evaluate if resolved dependencies impact the file flags isCICS, isSQL, isDLI, isMQ when creating the LogicalFile | false
+impactResolutionRules | Comma separated list of resolution rule properties used for impact builds.  Sample resolution rule properties (in JSON format) are included below. ** deprecated ** Please consider moving to new SearchPathDepedencyAPI leveraging `impactSearch` configuration. | true, recommended in file.properties
+impactSearch |Â Impact finder resolution search configuration leveraging the SearchPathImpactFinder API. Sample configurations are inlcuded below, next to the previous rule definitions. | true
+
+### file.properties
+
+Location of file properties, script mappings and file-level property overrides. All file properties for the entire application, including source files in distributed repositories of the application need to be contained either in this file or in other property files in the `application-conf` directory. Look for the column 'Overridable' in the tables below for build properties that can have file-level property overrides. Please also read the section [Build properties](https://www.ibm.com/docs/en/dbb/2.0?topic=apis-build-properties) in the official DBB documentation.
+
+Additional file-level properties can be defined through **individual artifact properties files** in a separate directory of the repository or through **language configuration** files to configure the language scripts. For more details, see [File Property Management](https://github.com/IBM/dbb-zappbuild/docs/FilePropertyManagement.md).
+
+Property | Description
+--- | ---
+dbb.scriptMapping | DBB configuration file properties association build files to language scripts
+dbb.scannerMapping | zAppBuild configuration override/expansion to map files extensions to DBB dependency scanner configurations
+cobol_testcase | File property to indicate a generated zUnit cobol test case to use a different set of source and output libraries
+
+Property | Description
+--- | ---
+loadFileLevelProperties | Flag to enable the zAppBuild capability to load individual artifact properties files for source files. See default configuration in [application.properties](#application.properties)
+loadLanguageConfigurationProperties | Flag to enable the zAppBuild capability to load language configuration properties files for source files. See default configuration in [application.properties](#application.properties)
+languageConfiguration | Properties mapping for assigning build files to language configuration to define the build configuration
+
+General file level overwrites to control the allocations of system datasets for compile and link steps or activation of preprocessing
+
+Property | Description
+--- | ---
+isSQL | File property overwrite to indicate that a file requires to include SQL preprocessing, and allocation of Db2 libraries for compile and link phase.
+isCICS | File property overwrite to indicate that a file requires to include CICS preprocessing, and allocation of CICS libraries for compile and link phase. Also used to indicate if a *batch* module is executed under CICS for pulling appropriate language interface modules for Db2 or MQ. 
+isMQ | File property overwrite to indicate that a file requires to include MQ libraries for compile and link phase.
+isDLI | File property overwrite to indicate that a file requires to include DLI 
+isIMS |Â File property flag to indicate IMS batch and online programs to allocate the IMS RESLIB library during link phase (Compared to the other 4 above flags, the isIMS flag is a pure file property, and not computed by the DBB scanners). 
+
+Please note that the above file property settings `isCICS` and `isIMS` are also used to control the allocations when processing link cards with `LinkEdit.groovy` to include the appropriate runtime specific language interfaces.
+
+### reports.properties
+Properties used by the build framework to generate reports. Sample properties file to all application-conf to overwrite central build-conf configuration.
+
+Property | Description 
+--- | ---
+reportExternalImpacts | Flag to indicate if an *impactBuild* should analyze and report external impacted files in other collections
+reportExternalImpactsAnalysisDepths | Configuration of the analysis depths when performing impact analysis for external impacts (simple|deep)
+reportExternalImpactsAnalysisFileFilter | Comma-separated list of pathMatcher filters to limit the analysis of external impacts to a subset of the changed files
+reportExternalImpactsCollectionPatterns | Comma-separated list of regex patterns of DBB collection names for which external impacts should be documented
+reportConcurrentChanges | Flag to indicate if the build generates reports of concurrent changes to understand recent changes in concurrent configurations (branches)
+reportConcurrentChangesGitBranchReferencePatterns | Comma-seperated list of regex patterns defining the branches for which concurrent changes should be calculated
+reportConcurrentChangesIntersectionFailsBuild | Flag to indicated if the build is marked as error, when build list intersects with changes on concurrent configurations
+
+### Assembler.properties
+Application properties used by zAppBuild/language/Assembler.groovy
+
+Property | Description | Overridable
+--- | --- | ---
+assembler_fileBuildRank | Default Assemble program build rank. Used to sort Assembler build file sub-list. Leave empty. | true
+assembler_pgmParms | Default Assembler parameters. | true
+assembler_linkEditParms | Default parameters for the link edit step. | true
+assembler_debugParms | Assembler options when the debug flag is set. | true
+assembler_compileErrorPrefixParms | Default parameters to support remote error feedback in user build scenarios |Â true
+assembler_eqalangxParms | Default parameters for eqalangx utility to produce debug sidefile. | true
+assembler_db2precompilerParms | Default Assembler parameters for Db2 precompiler step. | true
+assembler_cicsprecompilerParms |Â Default Assembler parameters for CICS precompiler step. | true
+assembler_asmaOptFile |Â Optional ASMAOPT file - dataset(member). | true
+assembler_linkEdit | Flag indicating to execute the link edit step to produce a load module for the source file.  If false then a object deck will be created instead for later linking. | true
+assembler_linkEditStream | Optional linkEditStream defining additional link instructions via SYSIN dd |Â true
+assembler_maxSQLTranslatorRC | Default maximum return code for the sql translator step. | true
+assembler_maxCICSTranslatorRC | Default maximum return code for the cics translator step. | true
+assembler_maxRC | Default maximum return code for the Assembler step. | true
+assembler_maxIDILANGX_RC | Default maximum return code for the debug IDILANGX sidefile generation step. | true
+assembler_linkEditMaxRC | Default maximum return code for the linkEdit step. | true
+assembler_impactPropertyList | List of build properties causing programs to rebuild when changed | false
+assembler_impactPropertyListCICS | List of CICS build properties causing programs to rebuild when changed | false
+assembler_impactPropertyListSQL | List of SQL build properties causing programs to rebuild when changed | false
+assembler_dependencySearch | Assembler dependencySearch configuration to configure the SearchPathDependencyResolver. Format is a concatenated string of searchPath configurations. Strings representing the SearchPaths defined in `application-conf/application.properties`. | true
+assembler_storeSSI | Flag to store abbrev git hash in ssi field in link step | true
+assembler_deployType | default deployType for build output | true
+assembler_deployTypeCICS | deployType for build output for build files where isCICS=true | true
+assembler_deployTypeDLI | deployType for build output for build files with isDLI=true | true
+assembler_scanLoadModule | Flag indicating to scan the load module for link dependencies and store in the application's outputs collection. | true
+assembler_assemblySyslibConcatenation | A comma-separated list of libraries to be concatenated in syslib during assembly step | true
+assembler_linkEditSyslibConcatenation | A comma-separated list of libraries to be concatenated in syslib during linkEdit step | true
+
+### BMS.properties
+Application properties used by zAppBuild/language/BMS.groovy
+
+Property | Description | Overridable
+--- | --- | ---
+bms_fileBuildRank | Default BMS program build rank. Used to sort BMS build file sub-list. Leave empty. | true
+bms_maxRC | Default BMS maximum RC allowed. | true
+bms_copyGenParms | Default parameters for the copybook generation step. | true
+bms_compileParms | Default parameters for the compilation step. | true
+bms_linkEditParms | Default parameters for the link edit step. | true
+bms_impactPropertyList | List of build properties causing programs to rebuild when changed | false
+bms_storeSSI | Flag to store abbrev git hash in ssi field in link step | true
+bms_deployType | deployType for build output | true
+bms_copy_deployType | deployType for generated copybooks | true
+
+
+### Cobol.properties
+Application properties used by zAppBuild/language/Cobol.groovy
+
+Property | Description | Overridable
+--- | --- | ---
+cobol_fileBuildRank | Default Cobol program build rank. Used to sort Cobol build file sub-list. Leave empty. | true
+cobol_dependencySearch | Cobol dependencySearch configuration to configure the SearchPathDependencyResolver. Format is a concatenated string of searchPath configurations. Strings representing the SearchPaths defined in `application-conf/application.properties`. | true
+cobol_compilerVersion | Default Cobol compiler version. | true
+cobol_compileMaxRC | Default compile maximum RC allowed. | true
+cobol_linkEditMaxRC | Default link edit maximum RC allowed. | true
+cobol_compileParms | Default base compile parameters. | true
+cobol_compileCICSParms | Default CICS compile parameters. Appended to base parameters if has value.| true
+cobol_compileSQLParms | Default SQL compile parameters. Appended to base parameters if has value. | true
+cobol_compileErrorPrefixParms | IDz user build parameters. Appended to base parameters if has value. | true
+cobol_linkEditParms | Default link edit parameters. | true
+cobol_compileDebugParms | Default Debug compile parameters. Appended to base parameters if running with debug flag set. | true
+cobol_storeSSI | Flag to store abbrev git hash in ssi field in link step | true
+cobol_impactPropertyList | List of build properties causing programs to rebuild when changed | false
+cobol_impactPropertyListCICS | List of CICS build properties causing programs to rebuild when changed | false
+cobol_impactPropertyListSQL | List of SQL build properties causing programs to rebuild when changed | false
+cobol_linkEdit | Flag indicating to execute the link edit step to produce a load module for the source file.  If false then a object deck will be created instead for later linking. | true
+cobol_linkEditStream | Optional linkEditStream defining additional link instructions via SYSIN dd |Â true
+cobol_linkDebugExit |Â linkEditStream to append a debug exit via SYSIN dd |Â true
+cobol_deployType | default deployType for build output | true
+cobol_deployTypeCICS | deployType for build output for build files where isCICS=true | true
+cobol_deployTypeDLI | deployType for build output for build files with isDLI=true | true
+cobol_scanLoadModule | Flag indicating to scan the load module for link dependencies and store in the application's outputs collection. | true
+cobol_compileSyslibConcatenation | A comma-separated list of libraries to be concatenated in syslib during compile step | true
+cobol_linkEditSyslibConcatenation | A comma-separated list of libraries to be concatenated in syslib during linkEdit step | true
+
+### LinkEdit.properties
+Application properties used by zAppBuild/language/LinkEdit.groovy
+
+Property | Description | Overridable
+--- | --- | ---
+linkedit_fileBuildRank | Default link card build rank. Used to sort link card build sub-list. Leave empty. | true
+linkedit_maxRC | Default link edit maximum RC allowed. | true
+linkedit_parms | Default link edit parameters. | true
+linkedit_impactPropertyList | List of build properties causing programs to rebuild when changed | false
+linkedit_storeSSI | Flag to store abbrev git hash in ssi field in link step | true
+linkedit_deployType | default deployType for build output | true
+linkedit_deployTypeCICS | deployType for build output for build files where isCICS=true set as file property | true
+linkedit_deployTypeDLI | deployType for build output for build files with isDLI=true set as file property | true
+linkedit_scanLoadModule | Flag indicating to scan the load module for link dependencies and store in the application's outputs collection. | true
+linkEdit_linkEditSyslibConcatenation | A comma-separated list of libraries to be concatenated in syslib during linkEdit step | true
+
+### PLI.properties
+Application properties used by zAppBuild/language/LinkEdit.groovy
+
+Property | Description | Overridable
+--- | --- | ---
+pli_fileBuildRank | Default PLI program build rank. Used to sort PLI program sub-list. Leave empty. | true
+pli_dependencySearch | PLI dependencySearch configuration to configure the SearchPathDependencyResolver. Format is a concatenated string of searchPath configurations. Strings representing the SearchPaths defined in `application-conf/application.properties`. | true
+pli_compilerVersion | Default PLI compiler version. | true
+pli_compileMaxRC | Default compile maximum RC allowed. | true
+pli_linkEditMaxRC | Default link edit maximum RC allowed. | true
+pli_compileParms | Default base compile parameters. | true
+pli_compileCICSParms | Default CICS compile parameters. Appended to base parameters if has value.| true
+pli_compileSQLParms | Default SQL compile parameters. Appended to base parameters if has value. | true
+pli_compileDebugParms | Default Debug compile parameters. Appended to base parameters if running with debug flag set. | true
+pli_compileIMSParms | Default IMS compile parameters. Appended to parms for file with `isIMS` flag turned on. | true
+pli_compileErrorPrefixParms | IDz user build parameters. Appended to base parameters if has value. | true
+pli_impactPropertyList | List of build properties causing programs to rebuild when changed | false
+pli_impactPropertyListCICS | List of CICS build properties causing programs to rebuild when changed | false
+pli_impactPropertyListSQL | List of SQL build properties causing programs to rebuild when changed | false
+pli_linkEditParms | Default link edit parameters. | true
+pli_linkEditStream | Optional linkEditStream defining additional link instructions via SYSIN dd |Â true
+pli_linkDebugExit |Â linkEditStream to append a debug exit via SYSIN dd |Â true
+pli_storeSSI | Flag to store abbrev git hash in ssi field in link step | true
+pli_impactPropertyList | List of build properties causing programs to rebuild when changed | false
+pli_impactPropertyListCICS | List of CICS build properties causing programs to rebuild when changed | false
+pli_impactPropertyListSQL | List of SQL build properties causing programs to rebuild when changed | false
+pli_linkEdit | Flag indicating to execute the link edit step to produce a load module for the source file.  If false then a object deck will be created instead for later linking. | true
+pli_deployType | default deployType for build output | true
+pli_deployTypeCICS | deployType for build output for build files where isCICS=true | true
+pli_deployTypeDLI | deployType for build output for build files with isDLI=true | true
+pli_scanLoadModule | Flag indicating to scan the load module for link dependencies and store in the application's outputs collection. | true
+pli_compileSyslibConcatenation | A comma-separated list of libraries to be concatenated in syslib during compile step | true
+pli_linkEditSyslibConcatenation | A comma-separated list of libraries to be concatenated in syslib during linkEdit step | true
+
+### bind.properties
+Application properties used by zAppBuild/language/COBOL.groovy
+
+Property | Description | Overridable
+--- | --- | ---
+bind_performBindPackage | Default variable to perform DB2 bind as part of a DBB User Build (default value:false) | true
+bind_runIspfConfDir | |
+bind_db2Location | The name of the DB2 subsystem | true
+bind_collectionID | The DB2 collection (Package) name | true
+bind_packageOwner | The owner of the package, if left empty the use executing the command will be used | true
+bind_qualifier | The value of the implicit qualifier | true
+bind_maxRC | Default bind maximum RC allowed. | true
+
+### MFS.properties
+Application properties used by zAppBuild/language/MFS.groovy
+
+Property | Description | Overridable
+--- | --- | ---
+mfs_fileBuildRank | Default MFS program build rank. Used to sort MFS build file sub-list. Leave empty. | true
+mfs_phase1MaxRC | Default MFS Phase 1 maximum RC allowed. | true
+mfs_phase2MaxRC | Default MFS Phase 2 maximum RC allowed. | true
+mfs_phase2Execution |Â Flag if MFS Phase 2 process should be executed. Default: false | true
+mfs_phase1Parms | Default parameters for the phase 1 step. | true
+mfs_phase2Parms | Default parameters for the phase 2 step. | true
+mfs_impactPropertyList | List of build properties causing programs to rebuild when changed | false
+mfs_deployType | default deployType for build output | true
+
+### DBDgen.properties
+Application properties used by zAppBuild/language/DBDgen.groovy
+
+Property | Description | Overridable
+--- | --- | ---
+dbdgen_fileBuildRank | Default build program build rank. Used to sort DBDgen build file sub-list. Leave empty. | true
+dbdgen_pgmParms | Default DBDgen parameters. | true
+dbdgen_linkEditParms | Default parameters for the link edit step. | true
+dbdgen_compileErrorPrefixParms | Default parameters to support remote error feedback in user build scenarios |Â true
+dbdgen_assemblerMaxRC | Default link edit maximum RC allowed. | true
+dbdgen_linkEditMaxRC | Default link edit maximum RC allowed. | true
+dbdgen_impactPropertyList | List of build properties causing programs to rebuild when changed | false
+dbdgen_deployType | default deployType for build output | true
+
+
+### PSBgen.properties
+Application properties used by zAppBuild/language/PSBgen.groovy
+
+Property | Description | Overridable
+--- | --- | ---
+psbgen_fileBuildRank | Default build program build rank. Used to sort DBDgen build file sub-list. Leave empty. | true
+psbgen_pgmParms | Default PSBgen parameters. | true
+psbgen_linkEditParms | Default parameters for the link edit step. | true
+psbgen_compileErrorPrefixParms | Default parameters to support remote error feedback in user build scenarios |Â true
+psbgen_runACBgen | Parameter if ACBgen should be executed right after PSBgen (default: true) | true
+psbgen_assemblerMaxRC | Default link edit maximum RC allowed. | true
+psbgen_linkEditMaxRC | Default link edit maximum RC allowed. | true
+psbgen_impactPropertyList | List of build properties causing programs to rebuild when changed | false
+psbgen_deployType | default deployType for build output | true
+
+### ACBgen.properties
+Application properties used by zAppBuild/language/PSBgen.groovy
+
+Property | Description | Overridable
+--- | --- | ---
+acbgen_pgmParms | Default ACBgen parameters. | true
+acbgen_pgmMaxRC | Default ACBgen maximum RC allowed. | true
+acbgen_deployType | default deployType for build output | true
+
+### ZunitConfig.properties
+Application properties used by zAppBuild/language/ZunitConfig.groovy
+
+Property | Description | Overridable
+--- | --- | ---
+zunit_maxPassRC | Default zUnit maximum RC allowed for a Pass. | true
+zunit_maxWarnRC | Default zUnit maximum RC allowed for a Warninig (everything beyond this value will Fail). | true
+zunit_playbackFileExtension | Default zUnit Playback File Extension. | true
+zunit_dependencySearch | Default zUnit dependencySearch configuration to configure the SearchPathDependencyResolver. Format is a concatenated string of searchPath configurations. Strings representing the SearchPaths defined in `application-conf/application.properties`.  |Â true
+zunit_bzuplayParms | Default options passed to the zUnit runner BZUPLAY |Â true
+zunit_userDebugSessionTestParm | Debug Tool Test parameter to initiate the debug session | true
+zunit_CodeCoverageHost | Headless Code Coverage Collector host (if not specified IDz will be used for reporting) | true 
+zunit_CodeCoveragePort | Headless Code Coverage Collector port (if not specified IDz will be used for reporting) | true 
+zunit_CodeCoverageOptions | Headless Code Coverage Collector Options | true
+
+### CRB.properties
+Application properties used by zAppBuild/language/CRB.groovy
+
+Property | Description | Overridable
+--- | --- | ---
+crb_maxRC | CICS Resource Builder maximum acceptable return code (default is 4 if not specified) | true
+
+### REXX.properties
+Application properties used by zAppBuild/language/REXX.groovy
+
+Property | Description | Overridable
+--- | --- | ---
+rexx_compileMaxRC | Default compile maximum RC allowed. | true
+rexx_linkEditMaxRC | Default link edit maximum RC allowed. | true
+rexx_dependencySearch | Default REXX dependencySearch configuration to configure the SearchPathDependencyResolver. Format is a concatenated string of searchPath configurations. Strings representing the SearchPaths defined in `application-conf/application.properties`.  |Â true
+rexx_compileParms | Default base compile parameters. | true
+rexx_compiler | Default REXX compiler |Â true
+rexx_linkEdit | Flag indicating to execute the link edit step to produce a compiled rexx for the source file. | true
+rexx_linkEditParms | Default link edit parameters. | true
+rexx_deployType | default deployType |Â true
+rexx_cexec_deployType | default deployType CEXEC |Â true
+rexx_compileSyslibConcatenation | A comma-separated list of libraries to be concatenated in syslib during compile step | true
+rexx_linkEditSyslibConcatenation | A comma-separated list of libraries to be concatenated in syslib during linkEdit step | true
+
+### Transfer.properties
+Application properties used by zAppBuild/language/Transfer.groovy
+
+Property | Description | Overridable
+--- | --- | ---
+transfer_deployType | deployType |Â true
+transfer_copyMode | Copy mode used during the copy to the target data set | true
+
+### languageConfigurationMapping.properties
+Sample language configuration mapping properties used by dbb-zappbuild/utilities/BuildUtilities.groovy.
+
+This contains the mapping of the files and their corresponding Language Configuration properties files residing in `zAppBuild/build-conf/language-conf` to override the default file properties.
+
+Example: The entry - `epsnbrvl.cbl=languageConfigProps01`, means the file properties of file `epsnbrvl.cbl` will be overridden by the properties mentioned in `zAppBuild/build-conf/language-conf/languageConfigProps01.properties`
+
+See the [language configuration mapping documentation](../../docs/FilePropertyManagement.md#language-configuration-mapping) for more details on how to enable and use language configuration mapping.
